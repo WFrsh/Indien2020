@@ -3,7 +3,6 @@ title: About
 date: 2020-01-30T21:13:19+00:00
 background_color: "#B4CEC8"
 contact_info:
-  twitter_handle: ''
   github_handle: WFRSH
   email: wilhelm.frisch@freenet.de
   twitter_url: https://twitter.com/forestryio
