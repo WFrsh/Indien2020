@@ -20,7 +20,7 @@ Oder zumindest erst Mal so grob in die Richtung. Auf dem Weg kommen wir wieder a
 
 # Bootsfahrt
 
-Bevor wir mit dem Boot fahren können, müssen wir vorher wieder mit dem Auto fahren. 
+Bevor wir mit dem Boot fahren können, müssen wir vorher wieder mit dem Auto fahren. Zum Glück nicht so lange. Erst zur falschen Stelle. Dann zur Richtigen. Dann zu Fuß. Basu drängelt. Die Sonne geht unter. Shiv ist entspannt. Man sieht die Sonne im Smog eh nicht. Sie sollten beide Recht behalten. Wir suchen die Anlegestelle der Boote am Ufer. Wir werden am Bahnübergang voneinander getrennt. So schaffen wir denn Sonnenuntergang auf jeden Fall nicht mehr. Nachdem wir den Bootsanleger gefunden haben und endlich wieder alle beisammen sind können wir ablegen. Die kleinen Boote bieten genug Platz für vier Personen plus Gondolieri und haben sogar eine kleinen überdachten Teil. Und Schwimmwesten für alle an Bord. Wobei das reine Vorhandensein noch lange nicht damit gleichzusetzen ist, dass sie einen im Fall der Fälle auch wirklich helfen würden. Wir stoßen ab in die Mitte des Flusses allerdings nicht in den Sonnenuntergang, denn die Sonne ist bereits hinter dem Smog untergegangen. um ca 17:15 Uhr. Der Nachteil nur einer Zeitzone. Die Sonne geht im Osten im Westen so früh unter. 
 
 \# MISTI HUB
 
