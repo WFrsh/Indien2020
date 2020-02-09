@@ -34,7 +34,7 @@ Wir sind wieder mit dem Auto auf den Straßen Kolkatas unterwegs. Auf dem Weg zu
 
 \# Flower Market
 
-\# Brücke
+\# Howrah Bridge
 
 \# Viktoria Memorial
 
