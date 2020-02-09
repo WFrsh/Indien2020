@@ -24,7 +24,7 @@ Bevor wir mit dem Boot fahren können, müssen wir vorher wieder mit dem Auto fa
 
 # New Market
 
-Wir sind wieder mit dem Auto auf den Straßen Kolkatas unterwegs. Auf dem Weg zum New Market. Einer Markthalle mit kleinen Geschäften und einem Labyrinth aus Wegen. Auf der Straße dorthin kann man sich noch nicht verlaufen. Das Auto mussten wir am Anfang der Straße stehen lassen. Ob das daran liegt, dass man hier nicht fahren darf oder fahren kann, wiel zu viele Menschen rumlaufen, vermögen wir nicht auszumachen. Kommt für uns aber auch aufs Gleiche hinaus.
+Wir sind wieder mit dem Auto auf den Straßen Kolkatas unterwegs. Auf dem Weg zum New Market. Einer Markthalle mit kleinen Geschäften und einem Labyrinth aus Wegen. Auf der Straße dorthin kann man sich noch nicht verlaufen. Das Auto mussten wir am Anfang der Straße stehen lassen. Ob das daran liegt, dass man hier nicht fahren darf oder fahren kann, wiel zu viele Menschen rumlaufen, vermögen wir nicht auszumachen. Kommt für uns aber auch aufs Gleiche hinaus. Die Straße ist an beiden Seiten von Ständen flankiert, die vornehmlich Kleidung verkaufen.
 
 \# MISTI HUB
 
