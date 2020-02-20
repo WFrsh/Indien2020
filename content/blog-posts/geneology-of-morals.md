@@ -3,7 +3,7 @@ title: Delhi
 date: 2020-01-11T23:00:34+00:00
 type: blog
 author: Friedrich Nietzsche
-hero: "/images/IMG_20200112_121928.jpg"
+hero: "/images/igor-son-FV_PxCqgtwc-unsplash.jpg"
 
 ---
 # Old Delhi
