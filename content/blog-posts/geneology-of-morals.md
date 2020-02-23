@@ -3,14 +3,12 @@ title: Delhi
 date: 2020-01-11T23:00:34+00:00
 type: blog
 author: Friedrich Nietzsche
-hero: "/images/igor-son-FV_PxCqgtwc-unsplash.jpg"
+hero: "/images/IMG_20200112_121928.jpg"
 
 ---
 # Old Delhi
 
 Nach kurzer Nacht werden wir am nächsten Tag - für uns ist es noch mitten in der Nacht, dabei ist es Mittags - im Hotel von unserem Reiseleiter abgeholt und fahren in die Altstadt Delhis. Es ist das erste Mal, dass wir indischen Verkehr erleben, dabei ist es Sonntag. Merkt man nicht. Außer vielleicht am Markt am Straßenrand. Darauf, dass der nur an Sonntagen stattfindet, werden wir von unserem Reiseleiter aufmerksam gemacht.
-
-![](/images/IMG_20200112_121928.jpg)
 
 \## Jamia Masjid
 
