@@ -54,9 +54,13 @@ Auf dem Weg nach Süden wird der Verkehr wieder besser und wir kommen noch einma
 
 ## Regierungsviertel
 
+![](/images/IMG_20200112_145140.jpg)
+
 Die Fahrt führt uns durch den üblichen Verkehr ins Regierungsviertel Delhis. Ursprünglich von den Engländern als Gartenstadt geplant, befinden sich noch immer die Regierungsgebäude dort. Wir halten zwischen Finanz- und Verteidigungsministerium und gehen hinauf Richtung Präsidentenpalast. Auf dem Weg wird bereits alles für den Tag der Republik aufgebaut. So richtig nah Ran an den Palast kommen wir nicht also wenden wir wieder und in der anderen Richtung erblicken wir das Gate of India im Nebel. Mist, Teleobjektiv vergessen. Wir kommen schon noch näher hin.
 
 ## Gate of India
+
+![](/images/IMG_20200112_151131.jpg)
 
 Also fahren auf dem Weg zu unserem nächsten Ziel noch am Gate of India vorbei. Leider stellt sich heraus, dass es wegen der Vorbereitungen zum India day derzeit geschlossen ist. Beim Triumphbogen in Paris waren wir ja quasi gerade erst. Verkraftbar. Es sollte auch nicht das letzte Mal gewesen sein, dass wir das Gate of India sehen.
 
@@ -66,9 +70,15 @@ Wir machen uns wieder auf ins Getümmel. Nach Süden. Zu den ältesten islamisch
 
 ## Humayun-Mausoleum
 
-![](/images/IMG_20200112_152800.jpg)
+Die Schlange sieht auf den ersten Blick recht lang aus, auf den zweiten Blick fällt jedoch auf, dass es zwei Schlangen sind, eine für indische Touristen und eine für ausländische Touristen, die viel kürzer ist. Nach kurzer Wartezeit hinter einer japanischen Reisegruppe durchschreiten wir Metalldetektor und Drehkreuz. Ashish geht einfach dran vorbei. Man kennt sich. 
 
-Die Schlange sieht auf den ersten Blick recht lang aus, auf den zweiten Blick fällt jedoch auf, dass es zwei Schlangen sind, eine für indische Touristen und eine für ausländische Touristen, die viel kürzer ist. Nach kurzer Wartezeit hinter einer japanischen Reisegruppe durchschreiten wir Metalldetektor und Drehkreuz. Ashish geht einfach dran vorbei. Man kennt sich. Nach zwei Paar Garten und Tor stehen wir vor dem symmetrischen Mausoleum. Wie schon die Tore ist es aus rotem Sandstein und weißem Mamor gebaut mit Einlagen aus Onyx. Der Blick wird von den den Wasserläufen auf den Bau gelenkt. Die persische Herkunft ist unmissverständlich. Nach oben rundet eine Marmorkuppel den Anblick ab. Ein gewaltiger Anblick. In der Mitte des Mausoleums dann zwei Deko-Sarkophage reich verziert mit Quoransuren, einer für ihn und einer für sie. Wer wo liegt ist am Deckel zu erkennen. Er hat ein kleines Federkästchen und sie eine Tafel, zum Schreiben der Memoiren. Nützt ihnen jetzt auch nichts mehr. Die echten Sarkophage befinden sich im Keller, der Öffentlichkeit unzugänglich. Die Ruhe sei den Toten vergönnt. Wir machen noch eine Runde durch die vier äußeren Kammern des Mausoleums, in denen Teile des erweiterten Stammbaums liegen. Wieder mit Deko-Sarkophagen und Federkasten bzw Tafel. Nachdem wir den Stammbaum einmal abgegrast haben, gehen wir zum Eingang zurück. Bevor wir diesen allerdings erreichen, biegen wir noch einmal ab zu einem weiteren, älteren Grabmal. Diesmal kein Kaiser sondern lediglich ein General. Der General eines Gegners der Mogulfamilie, der hier seine letzte Ruhe gefunden hatte, lange bevor die Moguls sich die Gärten für ihr eigenes Grab auserwählt hatten. Man sieht dem gut erhaltenen Mausoleum sein Alter an, das ihm aber gut steht. Wieder symmetrisch, diesmal jedoch achteckig und mit blauen keramikfließen gedeckt, machen wir eine Runde um das Grabmal, auf dessen Westseite eine offene Moschee nach Mekka weist. Durch die alten Mauern und neuen Drehkreuze gehen wir wieder hinaus und machen uns auf den Weg zu unserer letzten Station des Tages.
+![](/images/IMG_20200112_153646.jpg)
+
+Nach zwei Paar Garten und Tor stehen wir vor dem symmetrischen Mausoleum. Wie schon die Tore ist es aus rotem Sandstein und weißem Mamor gebaut mit Einlagen aus Onyx. Der Blick wird von den den Wasserläufen auf den Bau gelenkt. Die persische Herkunft ist unmissverständlich. Nach oben rundet eine Marmorkuppel den Anblick ab. Ein gewaltiger Anblick. In der Mitte des Mausoleums dann zwei Deko-Sarkophage reich verziert mit Quoransuren, einer für ihn und einer für sie. Wer wo liegt ist am Deckel zu erkennen. Er hat ein kleines Federkästchen und sie eine Tafel, zum Schreiben der Memoiren. Nützt ihnen jetzt auch nichts mehr. Die echten Sarkophage befinden sich im Keller, der Öffentlichkeit unzugänglich. Die Ruhe sei den Toten vergönnt. Wir machen noch eine Runde durch die vier äußeren Kammern des Mausoleums, in denen Teile des erweiterten Stammbaums liegen. Wieder mit Deko-Sarkophagen und Federkasten bzw Tafel. Nachdem wir den Stammbaum einmal abgegrast haben, gehen wir zum Eingang zurück. Bevor wir diesen allerdings erreichen, biegen wir noch einmal ab zu einem weiteren, älteren Grabmal. 
+
+![](/images/IMG_20200112_160633.jpg)
+
+Diesmal kein Kaiser sondern lediglich ein General. Der General eines Gegners der Mogulfamilie, der hier seine letzte Ruhe gefunden hatte, lange bevor die Moguls sich die Gärten für ihr eigenes Grab auserwählt hatten. Man sieht dem gut erhaltenen Mausoleum sein Alter an, das ihm aber gut steht. Wieder symmetrisch, diesmal jedoch achteckig und mit blauen keramikfließen gedeckt, machen wir eine Runde um das Grabmal, auf dessen Westseite eine offene Moschee nach Mekka weist. Durch die alten Mauern und neuen Drehkreuze gehen wir wieder hinaus und machen uns auf den Weg zu unserer letzten Station des Tages.
 
 ## Qutb Minar
 
