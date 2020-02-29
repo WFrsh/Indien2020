@@ -28,7 +28,7 @@ Wir durchschreiten das Hauptportal und erhaschen einen Blick auf das Rote Fort i
 
 Kalte Füße, also schnell wieder auf den angewärmten Sandstein. Wir kommen näher zum überdachten Teil der Moschee. Von hier aus kann man auch gut die Suren des quoran, in Onyx an der Fassade der Moschee eingelassen, erkennen. Beim Versuch in den Innenraum vorzustoßen werden wir darauf hingewiesen, dass gerade Gebetszeit ist und tatsächlich hat sich eine kleine Gruppe Gläubiger versammelt und betet. Wir wollen sie nicht stören und holen unsere Schuhe am Eingang der Moschee ab.
 
-\## Altstadt
+## Altstadt
 
 Die Stufen abgestiegen und vom Himmel wieder auf der Erde, entscheiden wir uns gegen eine Rikscha Tour und erkunden die Gassen der Altstadt lieber zu Fuß. Es geht los in der Dariba Kalan, der Straße der unvergleichlichen Diamanten, wo die Gold und Edelsteinhändler residieren. Heute bietet sich jedoch ein anderes Bild, da die meisten Läden geschlossen haben und an ihrer Stelle Straßenhändler alles mögliche anbieten.
 
@@ -48,9 +48,9 @@ Heute wird aber mehr mit Touristen verdient. Dass Sonntag ist, merkt man hier ni
 
 Lieblingsgeschäfte: Zement, Sand, Ziegel (verschiedener Fabrikate). Nur den Doppel-T-Trägerstand, von dem uns in den engen Gassen einen Karren entgegen gekommen ist, finden wir nicht. In die Gassen passt halt kein Lkw, so dass alles mit Karren oder Mopeds geliefert werden muss. Stattdessen beladen ein paar Männer einen Karren mit Ziegeln - sie schwören offenbar auf die Marke SHIV. Wir sammeln Ashish wieder ein und gehen zum Auto zurück. Während wir darauf warten, dass Guma das Auto ausparkt, kommt ein Reisebus mit Touristen an. Es kommt Hektik bei den Rikscha Fahrern auf. Wir entgegen der Hektik, indem wir aus auf den Weg zum Rajghat machen.
 
-\# New Delhi
+# New Delhi
 
-\## Rajghat
+## Rajghat
 
 Aus Old Delhi heraus zu kommen gestaltet sich als langwieriger Prozess. Vorbei an Autowerkstätten am Straßenrand, die auch genau dort reparieren, stehen wir mehr als dass wir fahren. Gut, dass die Werkstatt gleich hier wäre, wenn uns einer reinfährt. Tut aber keiner. Auch sonst kommt es zu keinen Unfällen. Ein Wunder. Um hier zu fahren, braucht es drei Dinge: Bremse, Hupe, Glück. Wir freuen uns, nicht fahren zu müssen.
 
@@ -58,24 +58,24 @@ Auf dem Weg nach Süden wird der Verkehr wieder besser und wir kommen noch einma
 
 ![](/images/IMG_20200112_141306.jpg)
 
-\## Regierungsviertel
+## Regierungsviertel
 
 Die Fahrt führt uns durch den üblichen Verkehr ins Regierungsviertel Delhis. Ursprünglich von den Engländern als Gartenstadt geplant, befinden sich noch immer die Regierungsgebäude dort. Wir halten zwischen Finanz- und Verteidigungsministerium und gehen hinauf Richtung Präsidentenpalast. Auf dem Weg wird bereits alles für den Tag der Republik aufgebaut. So richtig nah Ran an den Palast kommen wir nicht also wenden wir wieder und in der anderen Richtung erblicken wir das Gate of India im Nebel. Mist, Teleobjektiv vergessen. Wir kommen schon noch näher hin.
 
-\## Gate of India
+## Gate of India
 
 Also fahren auf dem Weg zu unserem nächsten Ziel noch am Gate of India vorbei. Leider stellt sich heraus, dass es wegen der Vorbereitungen zum India day derzeit geschlossen ist. Beim Triumphbogen in Paris waren wir ja quasi gerade erst. Verkraftbar. Es sollte auch nicht das letzte Mal gewesen sein, dass wir das Gate of India sehen.
 
-\# Old Delhi II
+# Old Delhi II
 
 Wir machen uns wieder auf ins Getümmel. Nach Süden. Zu den ältesten islamischen Sehenswürdigkeiten Delhis. Es geht kilometerweit vorbei an Geschäften, die ohne jede Ordnung nebeneinander alles mögliche verkaufen. An einem großen Bauzaun springen wir aus dem Auto. Auf der linken Seite wird gerade der große Park N... Sanctuary renoviert. Dafür haben wir aber heute keine Zeit und gehen auf die rechte Seite zum Mausoleum des zweiten Mogulkaisers Humayun.
 
-\## Humayun-Mausoleum
+## Humayun-Mausoleum
 
 ![](/images/IMG_20200112_152800.jpg)
 
 Die Schlange sieht auf den ersten Blick recht lang aus, auf den zweiten Blick fällt jedoch auf, dass es zwei Schlangen sind, eine für indische Touristen und eine für ausländische Touristen, die viel kürzer ist. Nach kurzer Wartezeit hinter einer japanischen Reisegruppe durchschreiten wir Metalldetektor und Drehkreuz. Ashish geht einfach dran vorbei. Man kennt sich. Nach zwei Paar Garten und Tor stehen wir vor dem symmetrischen Mausoleum. Wie schon die Tore ist es aus rotem Sandstein und weißem Mamor gebaut mit Einlagen aus Onyx. Der Blick wird von den den Wasserläufen auf den Bau gelenkt. Die persische Herkunft ist unmissverständlich. Nach oben rundet eine Marmorkuppel den Anblick ab. Ein gewaltiger Anblick. In der Mitte des Mausoleums dann zwei Deko-Sarkophage reich verziert mit Quoransuren, einer für ihn und einer für sie. Wer wo liegt ist am Deckel zu erkennen. Er hat ein kleines Federkästchen und sie eine Tafel, zum Schreiben der Memoiren. Nützt ihnen jetzt auch nichts mehr. Die echten Sarkophage befinden sich im Keller, der Öffentlichkeit unzugänglich. Die Ruhe sei den Toten vergönnt. Wir machen noch eine Runde durch die vier äußeren Kammern des Mausoleums, in denen Teile des erweiterten Stammbaums liegen. Wieder mit Deko-Sarkophagen und Federkasten bzw Tafel. Nachdem wir den Stammbaum einmal abgegrast haben, gehen wir zum Eingang zurück. Bevor wir diesen allerdings erreichen, biegen wir noch einmal ab zu einem weiteren, älteren Grabmal. Diesmal kein Kaiser sondern lediglich ein General. Der General eines Gegners der Mogulfamilie, der hier seine letzte Ruhe gefunden hatte, lange bevor die Moguls sich die Gärten für ihr eigenes Grab auserwählt hatten. Man sieht dem gut erhaltenen Mausoleum sein Alter an, das ihm aber gut steht. Wieder symmetrisch, diesmal jedoch achteckig und mit blauen keramikfließen gedeckt, machen wir eine Runde um das Grabmal, auf dessen Westseite eine offene Moschee nach Mekka weist. Durch die alten Mauern und neuen Drehkreuze gehen wir wieder hinaus und machen uns auf den Weg zu unserer letzten Station des Tages.
 
-\## Qutb Minar
+## Qutb Minar
 
 Nach etwa einer dreiviertel Stunde Fahrt kommen wir an die Ruinen der Qutb Minar. Ein von weithin sichtbares, 70m hohes Minarett thront über einer Vielzahl alter Säulen inmitten eines Parks aus Palmen.  Wir gehen an den Grundsteinen eines zweiten Minaretts vorbei, dass doppelt so hoch wie das noch stehende werden sollte, aber nie fertig wurde. Beim Anblick des noch stehenden Turms ist es kaum vorstellbar, einen Turm bauen zu wollen, der die doppelte Höhe haben sollte. Demnach sind die Ruinen nur allzu verständlich. Im Innenhof der alten Moschee dann weitere Ruinen. Der Säulengang ist aber noch gut erhalten und vermittelt einen Eindruck der damaligen Größe. Die Säulen stammen allesamt aus noch älteren Hindu Tempeln, die nach der Eroberung Delhis durch die Moslems geplündert und als Baumaterial wiederverwendet wurden. Da der Islam aber keine Darstellungen von Menschen oder Tieren erlaubt, wurden die Säulen so bearbeitet, dass die Bilder unkenntlich sind. Mindestens die Gesichter wurden abgebrochen. Aber die ehemalige Schönheit ist ungebrochen. Elefanten, überfließende Vasen, Lotusblüten und eine Vielzahl anderer Tiere. An der Wand ist noch das Abbild einer schönen Frau zu sehen, die sich im Spiegel die Haare macht. Auf der anderen Seite des Innenhofs, nach Westen die Ruinen des Innenraums der Moschee. Nur noch die Bögen stehen. Das genügt aber, um das Ausmaß der ehemaligen Moschee zu erahnen. Wir gehen durch die Bögen durch und ein engagierter Security Mann zeigt uns die schönsten Plätze für Fotos und versucht uns ein Foto, in dem wir die Minarettspitze in den Fingern halten, schön zu machen. Danke. Nicht unser Stil. Das Minarett, zu dem wir zurück gehen hat seinen Stil bereits vor Jahrhunderten gefunden und ist ihm treu geblieben. Den ganzen Turm hinauf zieren ausschließlich islamische Reliefs, da der Turm von Grund auf neu gebaut wurde und keine alten Säulen wiederverwendet wurden. Die Sonne taucht den roten Sandstein des Turms in warmes Licht und wir beenden den Tag mit eben diesem Gefühl.
