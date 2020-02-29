@@ -14,9 +14,7 @@ Nach kurzer Nacht werden wir am nächsten Tag - für uns ist es noch mitten in d
 
 ## Jamia Masjid
 
-Die erste Station unserer Indienreise sollte die größte Moschee Indiens werden. Die aus rotem Sandstein gebaute Moschee erhebt sich auf einem natürlichen Hügel über den Rest der Altstadt und nachdem wir die Stufen, die im 17. Jhd nicht nach DIN gebaut wurden, wie Lena anmerkt, haben wir einen guten Blick auf die angrenzenden Gebäude. Wie in allen Moscheen müssen wir vor betreten die Schuhe ausziehen und Lena muss sich über ihren langen Pullover noch einen langen Mantel werfen, dann können wir die Moschee durch das Nordtor betreten. Hier sollte noch der Hinweis eingebracht werden, dass man sich eine indische Moschee nicht als geschlossenes Gebäude vorstellen darf, sondern es handelt sich vielmehr um einen großen Innenhof mit angrenzenden überdachten Gebetsraum.
-
-![](/images/IMG_20200112_123235.jpg)
+Die erste Station unserer Indienreise sollte die größte Moschee Indiens werden. Die aus rotem Sandstein gebaute Moschee erhebt sich auf einem natürlichen Hügel über den Rest der Altstadt und nachdem wir die Stufen, die im 17. Jhd nicht nach DIN gebaut wurden, wie Lena anmerkt, haben wir einen guten Blick auf die angrenzenden Gebäude. Wie in allen Moscheen müssen wir vor betreten die Schuhe ausziehen und Lena muss sich über ihren langen Pullover noch einen langen Mantel werfen, dann können wir die Moschee durch das Nordtor betreten. Hier sollte noch der Hinweis eingebracht werden, dass man sich eine indische Moschee nicht als geschlossenes Gebäude vorstellen darf, sondern es handelt sich vielmehr um einen großen Innenhof mit angrenzenden überdachten Gebetsraum. 
 
 Der Platz auf dem wir nun sockfuß schreiten ist angenehm von der Sonne erwärmt worden und bietet bei hohen muslimischen Feiertagen bis zu 20.000 Gläubigen Platz zum Beten. In der Mitte der Moschee befindet sich ein großes Becken, mit dessen Hilfe sich die Muslime vor Beginn des Gebots reinigen können. Zu unserer linken erhebt sich das Hauptportal, durch das nur die Mogulfamilie Zutritt zum Innenraum hatten. Über der Pforte des Hauptportals, auf einem Blickdichten Balkon hatten sich früher die Frauen zum Gebet eingefunden, da sie nicht mit den Männern in der Moschee beten durften. Heute beten Männer und Frauen gemeinsam im Innenraum.
 
@@ -38,11 +36,7 @@ Anders als in Europa bieten die Händler aber wirklich nützliches Zeug an. Von 
 
 ![](/images/IMG_20200112_130251.jpg)
 
-Wir treffen auf eine Baustelle. Auf einem Plakat ist das Endresultat zu sehen. Eine Straße mit Grün in der Mitte und insgesamt nur drei Menschen darauf. Ich habe das Gefühl, dass an dem Bild etwas nicht stimmt. Die Straße, zu der die Baustelle gehört, ist die Prachtstraße Chandni Chowk, an der noch ein paar Kaufmannshäuser an die alten Zeiten erinnern.
-
-![](/images/IMG_20200112_130456.jpg)
-
-Heute wird aber mehr mit Touristen verdient. Dass Sonntag ist, merkt man hier nicht mehr. Durch die Baustelle ist die Gehbahn verengt, das Gedränge wird dichter. Lena bekommt ein unmissverständliches "Kompliment". Vorbei an Sikh und Hindutempel kommen wir wieder auf die Diamantengasse und haben unsere Runde durch die Altstadt beendet. Ashish besorgt sich noch etwas zu Mittag, wir haben so spät gefrühstückt, dass wir anlehnen und stattdessen noch etwas in die andere Richtung zu einem Markt am Strassenrand gehen.
+Wir treffen auf eine Baustelle. Auf einem Plakat ist das Endresultat zu sehen. Eine Straße mit Grün in der Mitte und insgesamt nur drei Menschen darauf. Ich habe das Gefühl, dass an dem Bild etwas nicht stimmt. Die Straße, zu der die Baustelle gehört, ist die Prachtstraße Chandni Chowk, an der noch ein paar Kaufmannshäuser an die alten Zeiten erinnern. Heute wird aber mehr mit Touristen verdient. Dass Sonntag ist, merkt man hier nicht mehr. Durch die Baustelle ist die Gehbahn verengt, das Gedränge wird dichter. Lena bekommt ein unmissverständliches "Kompliment". Vorbei an Sikh und Hindutempel kommen wir wieder auf die Diamantengasse und haben unsere Runde durch die Altstadt beendet. Ashish besorgt sich noch etwas zu Mittag, wir haben so spät gefrühstückt, dass wir anlehnen und stattdessen noch etwas in die andere Richtung zu einem Markt am Strassenrand gehen.
 
 ![](/images/IMG_20200112_132702.jpg)
 
