@@ -1,7 +1,7 @@
 +++
 date = 2020-01-13T23:00:00Z
 draft = true
-hero = ""
+hero = "/images/IMG_20200115_100332.jpg"
 title = "Jaipur"
 type = "blog"
 
