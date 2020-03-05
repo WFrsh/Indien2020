@@ -28,6 +28,8 @@ Wir sind wieder mit dem Auto auf den Straßen Kolkatas unterwegs. Auf dem Weg zu
 
 # MISTI HUB
 
+Bevor wir überhaupt losfahren, verabschieden wir uns noch von Basu, denn wir fahren jetzt 45 Minuten in den Nordosten und er wohnt eine Stunde südlich von Kolkatta. Also nicht direkt auf dem Weg.
+
 \# Mother Theresa House
 
 \# Tour durch altes englisches Viertel
