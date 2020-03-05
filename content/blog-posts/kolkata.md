@@ -28,7 +28,7 @@ Wir sind wieder mit dem Auto auf den Straßen Kolkatas unterwegs. Auf dem Weg zu
 
 # MISTI HUB
 
-Bevor wir überhaupt losfahren, verabschieden wir uns noch von Basu, denn wir fahren jetzt 45 Minuten in den Nordosten und er wohnt eine Stunde südlich von Kolkatta. Also nicht direkt auf dem Weg.
+Bevor wir überhaupt losfahren, verabschieden wir uns noch von Basu, denn wir fahren jetzt 45 Minuten in den Nordosten und er wohnt eine Stunde südlich von Kolkatta. Also nicht direkt auf unserem Weg. Nur noch zu dritt fahren durch die nächtlichen Straßen Kolkatas. Es gibt nicht viel zu sehen und das, was es zu sehen gibt, hat Shiv schon gesehen, so dass er bei einem Power Nap im Auto auch nichts verpasst. Wir schauen trotzdem raus. Irgendwann kommt Shiv wieder zu sich und wir sind angekommen. Der Süßigkeitenladen hat eigentlich noch eine halbe Stunde auf aber wir sind trotzdem fast die einzigen im Laden. Dann bleibt halt mehr für uns. 
 
 \# Mother Theresa House
 
