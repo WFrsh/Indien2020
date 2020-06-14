@@ -34,7 +34,7 @@ Bevor wir überhaupt losfahren, verabschieden wir uns noch von Basu, denn wir fa
 
 Der nächste Tag hält für uns die offinzielle geführte Tour von unserem Reiseveranstalter bereit. Nach dem Treffen im Foyer, fahren wir durch fast leere Straßen zu unserer ersten Station, dem Haus der Friedesnobelpreisträgerin Mutter Theresa. Es ist noch so früh, dass wir auch hier im Haus so gut wie die einzigen Touristen sind. Am Eingang begrüßt uns eine Nonne und die Statur einer kleinen Frau in Nonnenkleidung, Mutter Theresa. Wir gehen an der Statur vorbei in den nächsten Raum, in dem wir Mutter Theresa nicht zu Gesicht bekommen, weil ihr Grab keinen gläsernen Sarkophag beinhaltet. Eine Kerze brennt darauf und es sind einige Bänke für Betende vorhanden, die aber noch leer sind. Im nächsten Zimmer gibt es ein wenig mehr zu sehen: eine Ausstellung über das Leben und Werk der Frau. Neben dem Eingang sitzt eine junge Amerikanerin, die hier offensichtlich Freiwilligenarbeit leistet und uns rät, oben noch das private Zimmer von Mutter Theresa zu besichtigen, das seit ihrem Ableben unverändert geblieben ist. Unser Reiseleiter hat jedoch andere Pläne und ist schon wieder auf dem Weg aus dem Haus. Wir hetzen ihm hinterher. Das sollte auch das Thema des gesamten Tages bleiben.
 
-\# Tour durch altes englisches Viertel
+# Tour durch altes englisches Viertel
 
 \# Flower Market
 
