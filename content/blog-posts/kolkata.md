@@ -36,7 +36,11 @@ Der nächste Tag hält für uns die offinzielle geführte Tour von unserem Reise
 
 # Tour durch altes englisches Viertel
 
-\# Flower Market
+Davon merken wir allerdings noch nichts, weil wir im Auto durch das alte Regierungsviertel von Kolkata fahren. Gemächlich drehen fahren wir an den teilweise stark heruntergekommenen Kolonialbauten vorbei, damit die Touris komfortabel aus dem Wagen heraus Fotos schießen können. Dabei wird uns häppchenweise und zusammenhangslos erzählt, was sich früher oder heute in den jeweiligen Häusern befand bzw befindet. Ausgestiegen wird erst bei unserem nächsten Halt wieder.
+
+# Flower Market
+
+Am Bordstein südlich des Blumenmarkts südlich der Howrah Bridge am östlichen Ufer des Flusses wird der persönlichen Hygiene am dortigen Hydranten nachgegangen.
 
 \# Howrah Bridge
 
