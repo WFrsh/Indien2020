@@ -40,7 +40,7 @@ Davon merken wir allerdings noch nichts, weil wir im Auto durch das alte Regieru
 
 # Flower Market
 
-Am Bordstein südlich des Blumenmarkts südlich der Howrah Bridge am östlichen Ufer des Flusses wird der persönlichen Hygiene am dortigen Hydranten nachgegangen.
+Am Bordstein südlich des Blumenmarkts südlich der Howrah Bridge am östlichen Ufer des Flusses wird der persönlichen Hygiene am dortigen Hydranten nachgegangen. 
 
 \# Howrah Bridge
 
