@@ -12,11 +12,7 @@ Am nächsten Morgen machen wir uns auf den Weg nach Agra. Zunächst geht es wied
 
 ![](/images/IMG_20200113_094408.jpg)
 
-Bald verzieht sich der Dunst und wir können die grünen Reisfelder und gelben Rapsfelder, bei denen es sich allerdings nicht um Raps sondern um Senf handelt, auf den Äckern betrachten. Zwischen den Feldern am Rand der Wege sind überall Fladen ausgelegt und aufgestapelt. Guma fährt extra etwas langsamer und an den Rand der Fahrbahn oder hält einfach gleich auf der Autobahn an, um sie uns genauer zu erklären. Es handelt sich nämlich tatsächlich um Kuhfladen, die von den Familien, die die Felder bestellen hier zum trocknen ausgelegt werden, um sie später als Brennmaterial zu benutzen. Wo sie verbrannt werden zeigt Guma uns dann ein paar Minuten später, als in der Ferne und dann näher am Straßenrand rauchende Schornsteine auftauchen. Die Schornsteine gehören zu Ziegelfabriken, die hier das Baumaterial, das in Delhi auf den Märkten verkauft wird, brennen.
-
-Ziegel
-
-Brennereien
+Bald verzieht sich der Dunst und wir können die grünen Reisfelder und gelben Rapsfelder, bei denen es sich allerdings nicht um Raps sondern um Senf handelt, auf den Äckern betrachten. Zwischen den Feldern am Rand der Wege sind überall Fladen ausgelegt und aufgestapelt. Guma fährt extra etwas langsamer und an den Rand der Fahrbahn oder hält einfach gleich auf der Autobahn an, um sie uns genauer zu erklären. Es handelt sich nämlich tatsächlich um Kuhfladen, die von den Familien, die die Felder bestellen hier zum trocknen ausgelegt werden, um sie später als Brennmaterial zu benutzen. Wo sie verbrannt werden zeigt Guma uns dann ein paar Minuten später, als in der Ferne und dann näher am Straßenrand rauchende Schornsteine auftauchen. Die Schornsteine gehören zu Ziegelfabriken, die hier das Baumaterial, das in Delhi auf den Märkten verkauft wird, brennen. Vor den Brennereien liegen vorgeformte Ziegel zum trocknen in Reih und Glied bevor es für sie zum eigentlichen brennen geht. Vor jedem rauchenden Schornstein liegen Ziegel mit ihren jeweiligen Initialen eingestanzt und säuberlich gestapelte Kuhfladen. So geht es noch für einige Kilometer weiter, bis die Schornsteindicht wieder abnimmt und es wieder mehr Reis und Senffelder gibt, die schließlich in die Vorstadtbebauung von Agra übergehen. In diesem, östlichen Teil von Agra sind sowohl die Straßenbeschilderung als auch die Straßen selbst nicht auf dem Stand von Delhi, so dass wir ein Mal in eine falsche Sandpiste einbiegen bevor wir unser Hotel gefunden haben.
 
 # Taj Mahal
 
