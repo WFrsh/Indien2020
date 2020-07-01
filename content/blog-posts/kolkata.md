@@ -64,44 +64,4 @@ Am Abend hat uns Sambit noch zu seinen Eltern eingeladen. Es wird ein Abendessen
 
 # Postoffice
 
-Den nächsten Tag haben wir bis zum Abend für uns, so dass wir noch die Möglichkeit haben, Briefmarken
-
-für Postkarten zu kaufen. Das Postamt, das wir auf Google Maps gefunden haben, ist ca eine halbe Stunde
-
-zu Fuß entfernt. Einfach die Straße hoch und dann irgendwann links. Das Postamt haben wir dann auch
-
-recht schnell gefunden. War nicht schwierig. Wie sich heraus stellen soll, fangen die Schwierigkeiten
-
-jetzt erst an. Hinter der ersten Tür, die wir versuchen, befindet sich nur ein kleiner Raum, in dem man 
-
-offensichtlich nur Briefe und Päckchen absenden kann. Allerdings müssen sie dafür schon Frankiert sein.
-
-Aber es ist kein Schalter für Briefmarken zu finden. Also gehen wir wieder raus. Das kann ja wohl nicht
-
-das Hauptpostamt gewesen sein. So schnell geben wir nicht auf und gehen auf der Suche nach Briefmarken
-
-um die Ecke des Gebäudes. In der Mitte der Faßade treffen wir auf die nächste Tür. Nächster Versuch. 
-
-Diesmal ist der Raum dahinter deutlich größer und es gibt jede Menge Schalter. Das sieht doch schon 
-
-besser aus. Da es keine Nummern zu ziehen gibt, versuchen wir es einfach bei dem erstbesten Schalter.
-
-Wir machen verstänlich, dass wir Briefmarken für Postkarten benötigen. Gibts nicht an diesem Schalter.
-
-Dazu müssen wir an den Schalter da drüben. Wir brauchen Briefmarken für die Postkarten. Dafür müssen
-
-die Postkarten erst gewogen werden, damit das Porto bestimmt werden kann. Aber nicht an diesem Schalter.
-
-Am dritten Schalter lassen wir dann also die Postkarten wiegen - wiegen die nicht alle gleich viel? - 
-
-nur um zu hören, dass wir das Porto brauchen, was wir die ganze Zeit gewollt haben. Mit dieser "neuen"
-
-Info gehen wir zum zweiten Schalter zurück und ordern die Briefmarken, wie wir es vor zwei Minuten
-
-bereits versucht haben. Aber diesmal bekommen wir die Briefmarken sogar. Mittlerweile wissen wir ja 
-
-auch bereits, wo man frankierte Briefe einschmeißen muss. Also wieder raus aus dem Gebäude und um die
-
-Ecke zum anderen Eingang. Jetzt nur noch den richtigen Schlitz finden und dann hilft nur noch Daumen 
-
-drücken.
+Den nächsten Tag haben wir bis zum Abend für uns, so dass wir noch die Möglichkeit haben, Briefmarken für Postkarten zu kaufen. Das Postamt, das wir auf Google Maps gefunden haben, ist ca eine halbe Stunde zu Fuß entfernt. Einfach die Straße hoch und dann irgendwann links. Das Postamt haben wir dann auch recht schnell gefunden. War  nicht schwierig. Wie sich heraus stellen soll, fangen die Schwierigkeiten jetzt erst an. Hinter der ersten Tür, die wir versuchen, befindet sich nur ein kleiner Raum, in dem man offensichtlich nur Briefe und Päckchen absenden kann. Allerdings müssen sie dafür schon Frankiert sein. Aber es ist kein Schalter für Briefmarken zu finden. Also gehen wir wieder raus. Das kann ja wohl nicht das Hauptpostamt gewesen sein. So schnell geben wir nicht auf und gehen auf der Suche nach Briefmarken um die Ecke des Gebäudes. In der Mitte der Faßade treffen wir auf die nächste Tür. Nächster Versuch. Diesmal ist der Raum dahinter deutlich größer und es gibt jede Menge Schalter. Das sieht doch schon besser aus. Da es keine Nummern zu ziehen gibt, versuchen wir es einfach bei dem erstbesten Schalter. Wir machen verstänlich, dass wir Briefmarken für Postkarten benötigen. Gibts nicht an diesem Schalter. Dazu müssen wir an den Schalter da drüben. Wir brauchen Briefmarken für die Postkarten. Dafür müssen die Postkarten erst gewogen werden, damit das Porto bestimmt werden kann. Aber nicht an diesem Schalter. Am dritten Schalter lassen wir dann also die Postkarten wiegen - wiegen die nicht alle gleich viel? - nur um zu hören, dass wir das Porto brauchen, was wir die ganze Zeit gewollt haben. Mit dieser "neuen" Info gehen wir zum zweiten Schalter zurück und ordern die Briefmarken, wie wir es vor zwei Minuten bereits versucht haben. Aber diesmal bekommen wir die Briefmarken sogar. Mittlerweile wissen wir ja auch bereits, wo man frankierte Briefe einschmeißen muss. Also wieder raus aus dem Gebäude und um die Ecke zum anderen Eingang. Jetzt nur noch den richtigen Schlitz finden und dann hilft nur noch Daumen drücken.
