@@ -57,3 +57,51 @@ Die St. Paul's Cathedral, die auf den Bildern vom Bau des Victoria Memorial noch
 # Indian Museum
 
 Der letzte Stop des Tages bringt uns zum Indian Museum, einem Naturkundemuseum, an dem wir schon öfter vorbei gefahren sind. Heute aber gehen wir endlich einmal hinein. Am Eingang so wie am Ticketschalter sind allerdings schon Menschenschlangen, so dass wir uns auf eine kurze Wartezeit einstellen. Unser Guide hat allerdings andere Pläne und geht an der Schlange vorbei zu einem geschlossenen Schalter. Nach einer kurzen Uterhaltung mit dem Mann am Schalter haben wir Tickets und gehen auch einfach an der Schlange am Eingang vorbei zu den Metalldetektoren. Innen fangen wir unsere Runde durch die Hallen bei den frühen Steinskulpturen an. Erstaunlich, wie filigran die Menschen vor Jahrhunderten bereits den Stein behauen haben. Die meisten Skulpturen stellen Szenen aus der hinduistischen Mythologie dar. Für uns stellen sie fast alle das gleiche dar. Obwohl die Skulpturen viel älter als das Haus sind, sind sie in einem weitaus besseren Zustand. Von den Wände, vor denen die Exponate stehen, brückelt stellenweise der Putz und die Wandfarbe ist an den wenigsten Stellen noch wirklich weiß. Offensichtlich wird den Exponaten hier mehr Aufmerksamkeit geschenkt als dem Gebäude selbst - eigentlich auch gut so. Unserem gelangweilt wirkenden Guide folgen wir durch die nächsten Hallen und Stockwerke. Wir kommen an Agrarerzeugnissen und kleinen Szenen ihrer Ernte und Herstellung vorbei. An ausgestopften Tieren und Fossilien. An alten Gewändern und Teppichen. Über allem schwebt aber immerzu ein Hauch von Unterfinanzierung und die Langeweile unseres Guides. Man hätte bestimmt noch länger hier bleiben können, aber wir machen uns bereits am frühen Nachmittag auf den Weg zurück zum Hotel, wo wir uns von unserem Guide verabschieden und auf unser Hotelzimmer gehen.
+
+# Saltlake
+
+Am Abend hat uns Sambit noch zu seinen Eltern eingeladen. Es wird ein Abendessen mit Freunden und Familie geben. Lena hat den Tag leider nicht so gut überstanden, so dass Wilhelm alleine den Weg antreten muss. In einem Uber ist man nie alleine. Nach circa 40 min Fahrt komme ich an der von Sambit genannten Adresse an. Glaube ch zumindest. So genau kann man das nicht sagen, weil Saltlake, ein in den 60er Jahren von Grund auf neu geplanter Stadtteil Kalkuttas, nicht einfache Straßennamen und Hausnummern trägt. Ich steige trotzdem erstmal aus. Allerdings stehe ich jetzt vor einem Leichenwagen. Hoffentlich das falsche Haus. Das Haus daneben, das von oben bis unten komplett mit Blumen und Girlanden geschmückt ist, sieht schon besser aus. Und tatsächlich kommt mir Sambit schon entgegen. Seine gesamte Familie hat sich im Wohnzimmer versammelt und schaut die Aufnahmen der Hochzeit an, die sein Cousin aufgenommen und zusammen geschnitten hat. Nach kurzer Zeit ist das Essen auf der Dachterasse bereit. Es gibt typische Gerichte, die alle mit der Hand gegessen werden. Sambit hat mir schon ungefragt Besteck organisiert. Ich fühle mich nur ein bisschen in meiner Ehre verletzt und esse so lange es geht mit der Hand auch wenn ich dafür doppelt so lange brauche, wie alle anderen. Als letzten Gang gibt es dann eine Schüssel Seifenlauge, die aber nicht zum Trinken sondern zum Säubern der Hände gedacht ist. Gut, dass ich nicht als erstes mit dem Rest der Gerichte fertig geworden bin, so dass ich bei den Anderen sehe, dass man die Schüssel nicht austrinken soll. Nach dem Abendessen gehen die Freunde und Cousins noch die Straße runter zum Sambits Freund, dessen Familie hier ein identisches Haus hat. Auf dessen Dachterasse wird  nur die Musik angemacht und (endlich) die Bar eröffnet. Bis in die frühen Morgenstunden wird gefeiert und als ich mir ein Uber rufe, sind die Straßen so leer, dass ich nach 20min bereits am Hotel ankomme.
+
+# Postoffice
+
+Den nächsten Tag haben wir bis zum Abend für uns, so dass wir noch die Möglichkeit haben, Briefmarken
+
+für Postkarten zu kaufen. Das Postamt, das wir auf Google Maps gefunden haben, ist ca eine halbe Stunde
+
+zu Fuß entfernt. Einfach die Straße hoch und dann irgendwann links. Das Postamt haben wir dann auch
+
+recht schnell gefunden. War nicht schwierig. Wie sich heraus stellen soll, fangen die Schwierigkeiten
+
+jetzt erst an. Hinter der ersten Tür, die wir versuchen, befindet sich nur ein kleiner Raum, in dem man 
+
+offensichtlich nur Briefe und Päckchen absenden kann. Allerdings müssen sie dafür schon Frankiert sein.
+
+Aber es ist kein Schalter für Briefmarken zu finden. Also gehen wir wieder raus. Das kann ja wohl nicht
+
+das Hauptpostamt gewesen sein. So schnell geben wir nicht auf und gehen auf der Suche nach Briefmarken
+
+um die Ecke des Gebäudes. In der Mitte der Faßade treffen wir auf die nächste Tür. Nächster Versuch. 
+
+Diesmal ist der Raum dahinter deutlich größer und es gibt jede Menge Schalter. Das sieht doch schon 
+
+besser aus. Da es keine Nummern zu ziehen gibt, versuchen wir es einfach bei dem erstbesten Schalter.
+
+Wir machen verstänlich, dass wir Briefmarken für Postkarten benötigen. Gibts nicht an diesem Schalter.
+
+Dazu müssen wir an den Schalter da drüben. Wir brauchen Briefmarken für die Postkarten. Dafür müssen
+
+die Postkarten erst gewogen werden, damit das Porto bestimmt werden kann. Aber nicht an diesem Schalter.
+
+Am dritten Schalter lassen wir dann also die Postkarten wiegen - wiegen die nicht alle gleich viel? - 
+
+nur um zu hören, dass wir das Porto brauchen, was wir die ganze Zeit gewollt haben. Mit dieser "neuen"
+
+Info gehen wir zum zweiten Schalter zurück und ordern die Briefmarken, wie wir es vor zwei Minuten
+
+bereits versucht haben. Aber diesmal bekommen wir die Briefmarken sogar. Mittlerweile wissen wir ja 
+
+auch bereits, wo man frankierte Briefe einschmeißen muss. Also wieder raus aus dem Gebäude und um die
+
+Ecke zum anderen Eingang. Jetzt nur noch den richtigen Schlitz finden und dann hilft nur noch Daumen 
+
+drücken.
