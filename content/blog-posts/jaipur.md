@@ -6,7 +6,7 @@ title = "Jaipur"
 type = "blog"
 
 +++
-\# Chand Baori
+# Chand Baori
 
 Die Fahrt nach Jaipur verläuft diesmal nicht auf einer Privatstraße, so dass der Verkehr diversivizierter ist. Wir sehen vielerlei Nutztiere neben und auf der Straße, sowie Menschen mit allen möglichen Formen der Fortbewegungsmittel. Geht nicht gibt's nicht. Auf halbem Weg halten wir im Midway restaurant. So wie alle Touristen. Das Essen hat Touristenpreise ist aber ansonsten vorzüglich. Nach einstündiger Pause schlägt Guma vor, vom vorgegebenen Plan abzuweichen und eine Sehenswürdigkeit etwas abseits der Strecke anzuschauen: Chand Baori. Eine kurze Google Suche - in unserem Reiseführer steht nichts -  bringt uns zu der Erkenntnis, dass es das wert sein würde. Wir schwören noch kurz, nichts unserem Reiseleiter zu sagen und biegen von der Hauptroute ab. Nach zehn Minuten kommen an. Es sind insgesamt nur eine Handvoll Autos auf dem Parkplatz, was auf gute Fotos hoffen lässt.
 
@@ -24,13 +24,13 @@ Im Hotel angekommen bekommen wir zur Begrüßung Blumenkränze, den Tipp um 19 U
 
 ![](/images/IMG_20200114_183542.jpg)
 
-\# Palast der Winde
+# Palast der Winde
 
 Am nächsten Tag fahren wir mit Dave, unserem Reiseführer in Jaipur, durch eine fast leere Stadt. Alle Bürgersteige sind noch hochgeklappt. Da hat wohl jemand gestern Abend zu viel gefeiert. Die einzigen, die schon auf sind, sind die Touristen und die Straßenverkäufer. Wir folgen den anderen Touristenautos durch die pinke Altstadt, wobei Pink ein dehnbarer Begriff ist. Alle Fassaden sind in Ocker gestrichen. Kurz hinter der nächsten Straßenecke halten wir am Straßenrand und überqueren zu Fuß die mehrspurige Straße. Jetzt sind wir wach. Nur das Handy still halten zum fotografieren erweist sich als Herausforderung. Zum Glück hält das Motiv still: eine fünfstöckige Fassade an der Hauptstraße, durch deren Jalousien die Frauen des rückwärtigen Palastes das Treiben auf der Straße beobachten konnten. Für das Foto hat sich der Nervenkitzel der Straßenüberquerung gelohnt. Im Auto können wir bei der Fahrt in die umliegenden Berge den Puls wieder etwas beruhigen.
 
 ![](/images/IMG_20200115_091659.jpg)
 
-\# Amer Fort
+# Amer Fort
 
 Die Fahrt führt uns über Serpentinen langsam den Berg hoch. Wir durchqueren eine blassgelbe Mauer und verlieren wieder an Höhe. Während der Abfahrt ins nächste Tal taucht Linkerhand auf der Spitze eines Berges ab und zu eine Burg hinter den rotblühenden Bäumen auf. Irgendwann sind wir wieder so weit unten, dass sich vor uns ein See auftut. Sind wir schon wieder auf Höhe des Meeresspiegels? Wie sich herausstellt handelt es sich lediglich um einen künstlichen Stausee, in dem sich Krokodile den Warnschildern zufolge offenbar pudelwohl fühlen.
 
@@ -54,17 +54,17 @@ Daneben geht der Teich und Garten auf der anderen Seite des Hofes so unter, dass
 
 In der Mitte markiert ein Pavillion den ehemaligen Dreh- und Angelpunkt des täglichen Lebens der Konkubinen. Die inneren Wände der eingrenzenden Mauer sind mit bunten Pflanzenbildern bemalt und Haken an der Decke des Pavillions weisen noch immer auf Schaukeln oder Lampen hin. Wir behalten unser Tempo bei und verlassen das Fort auf steiler Rampe hinunter zum ersten Hof. Die letzte Herausforderung bleibt die Suche nach dem richtigen Auto auf einem Parkplatz voller Jeeps und weißer Touristenkarren. Wir geben auf und Dave ruft Guma an, dass er mit dem Wagen vorgefahren kommt.
 
-\# Water Palace
+# Water Palace
 
 ![](/images/IMG_20200115_105541.jpg)
 
 Auf dem Rückweg in die Stadt halten wir kurz an einem weiteren Stausee in dessen Mitte sich der Sommerpalast des Maharaja befindet. Obwohl wir gerade Trockenzeit haben, reicht das Wasser des Sees bis zur Unterkante der untersten Bögen. Hoffentlich ist nichts wichtiges in den unteren Bereichen, wenn die Regenzeit anbricht. Zwar im Staatsbesitz aber aus Denkmalschutzgründen unzugänglich für Besucher, machen wir nur kurz ein Foto und fahren weiter.
 
-\# Schmuckmanufaktur
+# Schmuckmanufaktur
 
 Vom Wasserpalast aus machen wir noch einen Umweg über eine Schmuckmanufaktur in der Vorstadt. Guma hat uns am Vortag schon davor gewarnt, dass das eine Touristenfabrik ist aber was als nächstes kommt ist kaum zu überbieten. Uns wird 5 min gezeigt, wie man einen Edelstein auf eine Drehscheibe hält und dann werden wir in den Verkaufsraum geführt. Ein großer Raum mit Vitrinen an allen Seiten. Und hinter jeder Vitrine ein Verkäufer, der uns anstarrt, weil noch keine anderen Touristen im Raum sind. Wir fühlen uns super unwohl und sind froh als wir wieder draußen sind. Das hätte man sich wirklich schenken können.
 
-\# Jantar Mantar
+# Jantar Mantar
 
 Nahe des Palastes des Maharaja in der Altstadt wechselt die Wandfarbe von Ocker, ich meine Pink, zu Blassgelb und wir wechseln vom Auto zu Fuß. Vorbei an einem Freiluftstand mit offiziellen Notaren hinter einem Plastiktisch kommen wir zum astrologischen bzw astronomischen Observatorium. Der Metalldetektor hier ist gar nicht erst an den Strom angeschlossen, so dass wir ohne anzustehen auf den Platz des Observatoriums gelangen.
 
@@ -76,7 +76,7 @@ Auf dem Platz erwarten uns allerlei Instrumente um den Stand der Sonne und damit
 
 Wir schlendern noch 20min umher, in der Hoffnung, den Zenithdurchgang der Sonne beobachten zu können aber die Wolken machen uns einen Strich durch die Rechnung. Schade. Zum Glück ist die nächste Station unserer Tour direkt gegenüber, dass nicht viel Zeit für Gram bleibt.
 
-\# Stadtpalast
+# Stadtpalast
 
 Sobald wir das Tor des Palastes und die Metalldetektoren durchschritten haben, kommt die Sonne wieder hinter den Wolken vor - na toll. Das nächste Mal 10min früher bitte. Ob wir was essen wollen? Lenas Antwort ist eindeutig. Wir hetzen also durch den Palast zum Cafe und essen und trinken eine Kleinigkeit. Den Kellnern ist die Location im Königspalast wohl zu Kopf gestiegen, die Bedienung ist die schlechteste, die wir bisher auf der gesamten Reise hatten. Aber die Falaffelsandwichs sind lecker. Nach der durchmischten Pause gehen wir zurück zu den Innenhöfen, durch die wir auf dem Hinweg gerannt sind.
 
