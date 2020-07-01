@@ -8,6 +8,10 @@ type = "blog"
 +++
 # Fahrt
 
+Der nächste Tag ist wieder ein Reisetag und ist bis zur ersten Pause wenig späktakulär. Wir kommen wieder an den gleichen Feldern und Fabriken vorbei und konzentrieren uns nicht so sehr auf die Außenwelt als auf unsere Lektüre. Am Vormittag machen wir dann an einem dem typischen Touristenspots Kaffe- und Toilettenpause. Dieser Halt unterscheidet sich allerdings in soweit von unseren bisherigen, als dass die Ratte hier in aller Ruhe am hellichten Tag durch den Raum läuft. Zum Glück wollten wir hier ohnehin nicht so lange verweilen, wir haben noch eine lange Fahrt vor uns. 
+
+Und die trägt uns vorbei an immer mehr Feldern und Ziegeleien, bis wir an einer schließlich nicht vorbei fahren sondern halten und aussteigen, weil Guma uns unbedingt die Ziegelei von nahem zeigen möchte. Wir sind von der Idee nicht so begeistert, weil es sich hierbei nicht einfah um ein verlassenes Gebäude handelt, sondern hier Menschen ihrem täglichen Leben nachgehen und arbeiten. Und wir wollen nicht die reichen weißen Europäer sein, die hier Menschen gucken gehen. Guma ist von unseren Einwänden allerdings unbeeindruckt und schreitet voran. 
+
 Ratte bei Kaffepause
 
 Ziegelfabrik
