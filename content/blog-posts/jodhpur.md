@@ -14,9 +14,11 @@ Und die trägt uns vorbei an immer mehr Feldern und Ziegeleien, bis wir an einer
 
 Es geht immer weiter nach Südwesten in die Wüste hinein. Das merken wir vor allem an der Vegetation, die spärlicher wird. Hier ist die Straße nicht mehr von Reisfeldern gesäumt sondern Brauntöne dominieren die Sicht. Irgendwann am späten Nachmittag erreichen wir dann Jodhpur, die blaue Stadt, dessen Stadtkern wir einmal umfahren und schließlich am Hotel in einem alten Haveli in der Altstadt ankommen. Für den Abend verabreden wir uns noch mit Guma für einen kleinen Stadtrundgang durch die anliegenden Straßen. Bis dahin beziehen wir noch unser Hotelzimmer mit Ausblick auf den Marktplatz und den Uhrturm.
 
-Am Abend treten wir aus dem Hotel und werden direkt von den warteten Tuk-Tuk Fahrern angewunken, doch eine Spritztour mit ihnen zu machen. Wir haben aber schon ein Date. Guma wartet auf der anderen Straßenseite und so machen wir uns auf den kurzen Weg zum Markt hinunter. Die Straßen sind noch recht belebt, auch wenn man merkt, dass die Hauptgeschäftszeit bereits vorbei ist.
+Am Abend treten wir aus dem Hotel und werden direkt von den warteten Tuk-Tuk Fahrern angewunken, doch eine Spritztour mit ihnen zu machen. Wir haben aber schon ein Date. Guma wartet auf der anderen Straßenseite und so machen wir uns auf den kurzen Weg zum Markt hinunter. Die Straßen sind noch recht belebt, auch wenn man merkt, dass die Hauptgeschäftszeit bereits vorbei ist. Wir wollen ja ohnehin nichts kaufen sondern uns vornehmlich ein bisschen umschauen und die Füße vertreten. In Gumas Begleitung können wir sogar unbehelligt durch die Gassen schlendern ohne die ganze Zeit in irgendwelche Shops gelockt zu werden und bekommen von Guma sogar ab und an noch ein paar Erklärungen zu den Waaren.
 
 ![](/images/IMG_20200116_182036.jpg)
+
+Nach einer Runde, wieder am Hotel angekommen, verabschieden wir uns für die Nacht von Guma und machen noch einen Abstecher auf die Dachterasse des Hotels, von wo aus wir einen 1a-Blick auf die im Dunkeln angestrahlte Hauptatraktion Jodhpurs haben, das Fort.
 
 ![](/images/IMG_20200116_185541.jpg)
 
