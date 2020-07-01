@@ -12,17 +12,13 @@ Der nächste Tag ist wieder ein Reisetag und ist bis zur ersten Pause wenig spä
 
 Und die trägt uns vorbei an immer mehr Feldern und Ziegeleien, bis wir an einer schließlich nicht vorbei fahren sondern halten und aussteigen, weil Guma uns unbedingt die Ziegelei von nahem zeigen möchte. Wir sind von der Idee nicht so begeistert, weil es sich hierbei nicht einfah um ein verlassenes Gebäude handelt, sondern hier Menschen ihrem täglichen Leben nachgehen und arbeiten. Und wir wollen nicht die reichen weißen Europäer sein, die hier Menschen gucken gehen. Guma ist von unseren Einwänden allerdings unbeeindruckt und schreitet voran. Je weiter wir gehen, desto mehr Erwachsene und Kinder sehen wir, die hier leben und desto unwohler fühlen wir uns. Nachdem Guma uns alles "interessante" gezeigt hat und sich alle Bewohner um uns versammelt haben, lassen sie uns gegen 50 Rupees für Schokolade für die Kinder wieder zum Auto zurück gehen und wir können unsere Fahrt fortsetzen.
 
-Ratte bei Kaffepause
+Es geht immer weiter nach Südwesten in die Wüste hinein. Das merken wir vor allem an der Vegetation, die spärlicher wird. Hier ist die Straße nicht mehr von Reisfeldern gesäumt sondern Brauntöne dominieren die Sicht. Irgendwann am späten Nachmittag erreichen wir dann Jodhpur, die blaue Stadt, dessen Stadtkern wir einmal umfahren und schließlich am Hotel in einem alten Haveli in der Altstadt ankommen. Für den Abend verabreden wir uns noch mit Guma für einen kleinen Stadtrundgang durch die anliegenden Straßen. Bis dahin beziehen wir noch unser Hotelzimmer mit Ausblick auf den Marktplatz und den Uhrturm.
 
-Ziegelfabrik
-
-Fort über der Stadt
-
-![](/images/IMG_20200116_185541.jpg)
-
-Altstadtbummel
+Am Abend treten wir aus dem Hotel und werden direkt von den warteten Tuk-Tuk Fahrern angewunken, doch eine Spritztour mit ihnen zu machen. Wir haben aber schon ein Date. Guma wartet auf der anderen Straßenseite und so machen wir uns auf den kurzen Weg zum Markt hinunter. Die Straßen sind noch recht belebt, auch wenn man merkt, dass die Hauptgeschäftszeit bereits vorbei ist.
 
 ![](/images/IMG_20200116_182036.jpg)
+
+![](/images/IMG_20200116_185541.jpg)
 
 # Jaswant Thada
 
