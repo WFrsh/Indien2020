@@ -8,15 +8,11 @@ type = "blog"
 +++
 # Fahrt
 
+Am nächsten Morgen machen wir uns auf den Weg nach Agra. Zunächst geht es wieder durch das Gewühl von Delhi bevor wir in die Außenbezirke kommen, wo die Straßen etwas leerer werden. Hier draußen stehen die Häuser nicht mehr so dicht gedrängt dafür aber höher. Wir kommen an vielen fertigen und unfertigen Appartmentgebäuden vorbei sowie nach Aussage Gumas auch an mehreren Callcentern, die hier in der Gegend sitzen. Wir haben aber gerade kein technisches Anliegen, können also weiter fahren. Bald kommen wir auf die neue gebührenpflichtige Autobahn, die Delhi mit Agra verbindet. Hier ist fast kein Verkehr und die Straße ist in sehr guten Zustand, was uns entspannt und schnell voran bringt. Aus den Fenstern haben wir Ausblick über Felder auf beiden Seiten, über denen noch der Nebel des Morgens liegt - oder ist es der Rest des Smogs von Delhi?. 
+
 ![](/images/IMG_20200113_094408.jpg)
 
-Callcenter
-
-Reis?
-
-Mustard (raps)?
-
-Kuhdung
+Bald verzieht sich der Dunst und wir können die grünen Reisfelder und gelben Rapsfelder, bei denen es sich allerdings nicht um Raps sondern um Senf handelt, auf den Äckern betrachten. Zwischen den Feldern am Rand der Wege sind überall Fladen ausgelegt und aufgestapelt. Guma fährt extra etwas langsamer und an den Rand der Fahrbahn oder hält einfach gleich auf der Autobahn an, um sie uns genauer zu erklären. Es handelt sich nämlich tatsächlich um Kuhfladen, die von den Familien, die die Felder bestellen hier zum trocknen ausgelegt werden, um sie später als Brennmaterial zu benutzen. Wo sie verbrannt werden zeigt Guma uns dann ein paar Minuten später, als in der Ferne und dann näher am Straßenrand rauchende Schornsteine auftauchen. Die Schornsteine gehören zu Ziegelfabriken, die hier das Baumaterial, das in Delhi auf den Märkten verkauft wird, brennen.
 
 Ziegel
 
