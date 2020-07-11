@@ -16,7 +16,7 @@ Das Frühstück wird unter freiem Himmel auf der Restaurantterrasse direkt am Wa
 
 ![](/images/IMG_20200119_090614.jpg)
 
-Auch als wir mit Mukesch zur Fuß vom Hotel in die Altstadt aufbrechen kommen uns weitere Hochzeitspärchen entgegen. Von der Brücke in die Altstadt aus sehen wir Frauen im Freien die Kleider der Familie auf den Stufen am Picholasee waschen. Nach kurzer Zeit über fast verlassene Straßen kommen wir zum Hintereingang des Jagdish Tempel.
+Auch als wir mit Mukesch zu Fuß vom Hotel in die Altstadt aufbrechen kommen uns weitere Hochzeitspärchen entgegen. Von der Brücke in die Altstadt aus sehen wir Frauen im Freien die Kleider der Familie auf den Stufen am Picholasee waschen. Nach kurzer Zeit über fast verlassene Straßen kommen wir zum Hintereingang des Jagdish Tempel.
 
 ![](/images/IMG_20200119_093221.jpg)
 
