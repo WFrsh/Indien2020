@@ -16,8 +16,6 @@ Als wir wieder nach oben kommen, ist der Raum rauchgefüllt. Was haben wir verpa
 
 Konkanie hochzeit
 
-Tuch zwischen ihnen
-
 Ketten behangen
 
 Pause, Tee
