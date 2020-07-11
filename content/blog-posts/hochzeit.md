@@ -6,7 +6,7 @@ title = "Hochzeit"
 type = "blog"
 
 +++
-Sangeet
+Am großen Tag essen wir spät Frühstück und machen uns dann für die Feier fertig. Zumindest so weit es geht. Alleine einen Saree zu binden ist eben nichts für Anfänger. Also hat nur Wilhelm die indischen Kleider am Leib und Lena lediglich in der Tüte. Aber deshalb bekommt auch nur einer vom Portier ein Kompliment. Auf der anderen Seite kann Lenas Saree dann aber auch nicht während der 45-minütigen Autofahrt verknittern. Wir fahren noch nicht zur Location der Hochzeit, sondern erst einmal zum Hotel in dem Sambits Verwandte und Freunde aus Kolkata übernachten.
 
 Saree binden
 
