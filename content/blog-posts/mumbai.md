@@ -14,7 +14,7 @@ Mumbai ist halt doch die größte Stadt Indiens. Und das merken wir auch an der 
 
 ![](/images/IMG_20200120_161915.jpg)
 
-So wie wir auch, bevor wir uns am Abend mit Abhishek, einem Freund des Bräutigams, zum Einkaufen von traditioneller indischer Tracht treffen. Die Auswahl ist riesig aber mithilfe von Abhishek gelingt es uns etwas passendes zu finden. Hoffentlich stehlen wir damit nicht dem Brautpaar die Show.
+So wie wir auch, bevor wir uns am Abend mit Abhishek, einem Freund des Bräutigams, zum Einkaufen von traditioneller indischer Tracht treffen. Die Auswahl ist riesig aber mithilfe von Abhishek und weiblicher Unterstützung per facetime gelingt es uns, etwas passendes zu finden. Hoffentlich stehlen wir damit nicht dem Brautpaar die Show.
 
 # Victoria Terminus
 
