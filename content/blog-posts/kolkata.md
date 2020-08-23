@@ -24,7 +24,7 @@ Oder zumindest erst Mal so grob in die Richtung. Auf dem Weg kommen wir wieder a
 
 ![](/images/img_20200124_171902.jpg)
 
-Bevor wir mit dem Boot fahren können, müssen wir vorher wieder mit dem Auto fahren. Zum Glück nicht so lange. Erst zur falschen Stelle. Dann zur Richtigen. Dann zu Fuß. Basu drängelt. Die Sonne geht unter. Shiv ist entspannt. Man sieht die Sonne im Smog eh nicht. Sie sollten beide Recht behalten. Wir suchen die Anlegestelle der Boote am Ufer. Wir werden am Bahnübergang voneinander getrennt. So schaffen wir denn Sonnenuntergang auf jeden Fall nicht mehr. Nachdem wir den Bootsanleger gefunden haben und endlich wieder alle beisammen sind können wir ablegen. Die kleinen Boote bieten genug Platz für vier Personen plus Gondolieri und haben sogar eine kleinen überdachten Teil. Und Schwimmwesten für alle an Bord. Wobei das reine Vorhandensein noch lange nicht damit gleichzusetzen ist, dass sie einen im Fall der Fälle auch wirklich helfen würden. Wir stoßen ab in die Mitte des Flusses allerdings nicht in den Sonnenuntergang, denn die Sonne ist bereits hinter dem Smog untergegangen. Um ca 17:15 Uhr. Der Nachteil nur einer Zeitzone. Die Sonne geht im Osten im Westen so früh unter. Und treten die Sterne und Mosquitos an die Stelle der Sonne. Wobei die einen dem Smog zum Opfer fallen und wir den anderen. Wenn man hier auf dem Wasser ein paar romantische Stündchen verbringen will, dann könnte das nervig sein. Gut, dass wir nur eine romantische viertel Stunde mit in Zeitungspapier eingeschlagenen Bierflaschen, die Shiv zuvor noch besorgt hat, während wir in einer Seitenstraße einen Masala Chai getrunken haben, auf dem Wasser verbringen. Einmal mit dem Strom in der Mitte des Stroms unter der neuen Brücke hindurch und dann am Ufer des Stroms gegen den Strom wieder zurück. Wir haben die Runde alle heil überstanden und auch das Aussteigen meistern wir mit Bravour. 
+Bevor wir mit dem Boot fahren können, müssen wir vorher wieder mit dem Auto fahren. Zum Glück nicht so lange. Erst zur falschen Stelle. Dann zur Richtigen. Dann zu Fuß. Basu drängelt. Die Sonne geht unter. Shiv ist entspannt. Man sieht die Sonne im Smog eh nicht. Sie sollten beide Recht behalten. Wir suchen die Anlegestelle der Boote am Ufer. Wir werden am Bahnübergang voneinander getrennt. So schaffen wir denn Sonnenuntergang auf jeden Fall nicht mehr. Nachdem wir den Bootsanleger gefunden haben und endlich wieder alle beisammen sind können wir ablegen. Die kleinen Boote bieten genug Platz für vier Personen plus Gondolieri und haben sogar eine kleinen überdachten Teil. Und Schwimmwesten für alle an Bord. Wobei das reine Vorhandensein noch lange nicht damit gleichzusetzen ist, dass sie einen im Fall der Fälle auch wirklich helfen würden. Wir stoßen ab in die Mitte des Flusses allerdings nicht in den Sonnenuntergang, denn die Sonne ist bereits hinter dem Smog untergegangen. Um ca 17:15 Uhr. Der Nachteil nur einer Zeitzone. Die Sonne geht im Osten im Westen so früh unter. Und treten die Sterne und Mosquitos an die Stelle der Sonne. Wobei die einen dem Smog zum Opfer fallen und wir den anderen. Wenn man hier auf dem Wasser ein paar romantische Stündchen verbringen will, dann könnte das nervig sein. Gut, dass wir nur eine romantische viertel Stunde mit in Zeitungspapier eingeschlagenen Bierflaschen, die Shiv zuvor noch besorgt hat, während wir in einer Seitenstraße einen Masala Chai getrunken haben, auf dem Wasser verbringen. Einmal mit dem Strom in der Mitte des Stroms unter der neuen Brücke hindurch und dann am Ufer des Stroms gegen den Strom wieder zurück. Wir haben die Runde alle heil überstanden und auch das Aussteigen meistern wir mit Bravour.
 
 ![](/images/img_20200124_174721.jpg)
 
@@ -40,7 +40,7 @@ Bevor wir überhaupt losfahren, verabschieden wir uns noch von Basu, denn wir fa
 
 # Mother Theresa House
 
-Der nächste Tag hält für uns die offizielle geführte Tour von unserem Reiseveranstalter bereit. Nach dem Treffen im Foyer, fahren wir durch fast leere Straßen zu unserer ersten Station, dem Haus der Friedesnobelpreisträgerin Mutter Theresa. Es ist noch so früh, dass wir auch hier im Haus so gut wie die einzigen Touristen sind. 
+Der nächste Tag hält für uns die offizielle geführte Tour von unserem Reiseveranstalter bereit. Nach dem Treffen im Foyer, fahren wir durch fast leere Straßen zu unserer ersten Station, dem Haus der Friedesnobelpreisträgerin Mutter Theresa. Es ist noch so früh, dass wir auch hier im Haus so gut wie die einzigen Touristen sind.
 
 ![](/images/img_20200125_094934.jpg)
 
@@ -52,11 +52,11 @@ Davon merken wir allerdings noch nichts, weil wir im Auto durch das alte Regieru
 
 # Flower Market
 
-Am Bordstein südlich des Blumenmarkts südlich der Howrah Bridge am östlichen Ufer des Flusses wird der persönlichen Hygiene am Hydranten nachgegangen. Mit großen Schritten umgehen wir die Pfützen um trocken zum Ghat am Ufer des Flusses zu gelangen. Von hier aus haben wir einen guten Blick auf die Howrah Brücke über die Menschenmassen vom Bahnhof in Richtung Kolkata strömen und Menschen, die sich selber oder ihre Wäsche am Ufer waschen. 
+Am Bordstein südlich des Blumenmarkts südlich der Howrah Bridge am östlichen Ufer des Flusses wird der persönlichen Hygiene am Hydranten nachgegangen. Mit großen Schritten umgehen wir die Pfützen um trocken zum Ghat am Ufer des Flusses zu gelangen. Von hier aus haben wir einen guten Blick auf die Howrah Brücke über die Menschenmassen vom Bahnhof in Richtung Kolkata strömen und Menschen, die sich selber oder ihre Wäsche am Ufer waschen.
 
 ![](/images/img_20200125_103619.jpg)
 
-Durch eine Gasse im Norden betreten wir nun das Labyrinth aus Gassen, das den Blumenmarkt von Kolkata bildet. Durch die Planen, die die Gassen von Regen und Sonne schützen, ist die Athmosphäre mit einem Mal eine andere. Eine dunkle Schwüle beherrscht die Gassen, durch die wir uns hintereinander an Ständen und Entgegenkommenden vorbei schlängeln. Der Boden ist mit feuchten Pflanzenteilen übersät, die ihren Wasseranteil in gleichen Teilen an den Boden und die Luft abgeben. 
+Durch eine Gasse im Norden betreten wir nun das Labyrinth aus Gassen, das den Blumenmarkt von Kolkata bildet. Durch die Planen, die die Gassen von Regen und Sonne schützen, ist die Athmosphäre mit einem Mal eine andere. Eine dunkle Schwüle beherrscht die Gassen, durch die wir uns hintereinander an Ständen und Entgegenkommenden vorbei schlängeln. Der Boden ist mit feuchten Pflanzenteilen übersät, die ihren Wasseranteil in gleichen Teilen an den Boden und die Luft abgeben.
 
 ![](/images/img_20200125_103802.jpg)
 
@@ -72,13 +72,13 @@ Im Auto fahren wir den Menschenmassen entgegen und finden uns kurze Zeit später
 
 ![](/images/img_20200125_105246.jpg)
 
- Aus sozialer Sicht ist die Brücke, die den Kopfbahnhof am westlichen Ufer mit der Innenstadt Kolkattas verbindet allerdings unverzichtbar. Täglich queren tausende Pendler und Autos diese Brücke. Wir sind nur eines von vielen. Am anderen Ufer fahren wir wieder seitlich aus der Brücke heraus und machen uns auf den Weg nach Süden zur nächsten Brücke, um den Fluss erneut zu queren. Die südlichere Brücke wurde in den 1990er Jahren eröffnet um die Howrah Bridge zu entlasten, was aufgrund der Entfernung zum Bahnhof und der Mautpflicht allerdings nicht so richtig geklappt hat. Ist dafür schön leer. Von hier aus haben wir auch eine gute Sicht auf den Bootsanleger, von dem wir gestern Abend zu unserer romantischen Bootstour gestartet sind. Nachdem wir wieder festen Boden unter den Rädern haben, hat uns der Verkehr Kolkattas auch wieder verschluckt und spuckt uns kurze Zeit später am Victoria Memorial wieder aus.
+Aus sozialer Sicht ist die Brücke, die den Kopfbahnhof am westlichen Ufer mit der Innenstadt Kolkattas verbindet allerdings unverzichtbar. Täglich queren tausende Pendler und Autos diese Brücke. Wir sind nur eines von vielen. Am anderen Ufer fahren wir wieder seitlich aus der Brücke heraus und machen uns auf den Weg nach Süden zur nächsten Brücke, um den Fluss erneut zu queren. Die südlichere Brücke wurde in den 1990er Jahren eröffnet um die Howrah Bridge zu entlasten, was aufgrund der Entfernung zum Bahnhof und der Mautpflicht allerdings nicht so richtig geklappt hat. Ist dafür schön leer. Von hier aus haben wir auch eine gute Sicht auf den Bootsanleger, von dem wir gestern Abend zu unserer romantischen Bootstour gestartet sind. Nachdem wir wieder festen Boden unter den Rädern haben, hat uns der Verkehr Kolkattas auch wieder verschluckt und spuckt uns kurze Zeit später am Victoria Memorial wieder aus.
 
 # Viktoria Memorial
 
 ![](/images/img_20200125_111846.jpg)
 
-Das weiße im Kolonialstil erbaute Victoria Memorial liegt inmitten von grünen Gartenanlagen, die man durch den typischen Metalldetektor betritt. Auf dem Weg durch die Gartenanlagen kommen wir an einer gusseiserner Statue von Queen Victoria auf ihrem Thron vorbei. Ihr zu ehren wurde das Memorial in der ehemaligen Kolonialhauptstadt errichtet. Das doofe war nur, dass die Hauptstadt vor der Fertigstellung des Memorials bereits nach Delhi verlegt wurde. Davon ließ sich die Verwaltung Kolkattas allerdings nicht beirren und hat es dennoch fertiggestellt, so dass wir heute das fertige Memorial aus weißem Marmor betrachten können. Der Schein trügt allerdings, denn über einer Stahlkonstruktion ist lediglich eine Fassade aus weißem Marmor angebracht worden. Gegen ein Taj Mahal kommt die lange nicht an. Auch im Inneren des Memorial geht es nicht so atemberaubend schön weiter, wie wir es aus Rajasthan kennen. Vielleicht sind wir da einfach ein bisschen zu verwöhnt. Die Wände haben hier nicht mehr ihre ursprüngliche weiße Farbe, was sicherlich daran liegt, dass sie nicht aus echtem Marmor sind sondern lediglich weiß getüncht. Auch die Exponate des kleinen, zusammengewürfelten Museums in den Räumlichkeiten haben schon bessere Zeiten gesehen. 
+Das weiße im Kolonialstil erbaute Victoria Memorial liegt inmitten von grünen Gartenanlagen, die man durch den typischen Metalldetektor betritt. Auf dem Weg durch die Gartenanlagen kommen wir an einer gusseiserner Statue von Queen Victoria auf ihrem Thron vorbei. Ihr zu ehren wurde das Memorial in der ehemaligen Kolonialhauptstadt errichtet. Das doofe war nur, dass die Hauptstadt vor der Fertigstellung des Memorials bereits nach Delhi verlegt wurde. Davon ließ sich die Verwaltung Kolkattas allerdings nicht beirren und hat es dennoch fertiggestellt, so dass wir heute das fertige Memorial aus weißem Marmor betrachten können. Der Schein trügt allerdings, denn über einer Stahlkonstruktion ist lediglich eine Fassade aus weißem Marmor angebracht worden. Gegen ein Taj Mahal kommt die lange nicht an. Auch im Inneren des Memorial geht es nicht so atemberaubend schön weiter, wie wir es aus Rajasthan kennen. Vielleicht sind wir da einfach ein bisschen zu verwöhnt. Die Wände haben hier nicht mehr ihre ursprüngliche weiße Farbe, was sicherlich daran liegt, dass sie nicht aus echtem Marmor sind sondern lediglich weiß getüncht. Auch die Exponate des kleinen, zusammengewürfelten Museums in den Räumlichkeiten haben schon bessere Zeiten gesehen.
 
 ![](/images/img_20200125_121229.jpg)
 
@@ -86,7 +86,7 @@ Alleine die Wandmalereien der Innenseite der Kuppel, die wichtige Stationen des 
 
 ![](/images/img_20200125_120256.jpg)
 
- Wir gehen durch die Grünanlagen zum Ostausgang, hinter dem unser nächstes Ziel liegt, die St. Pauls Cathedral.
+Wir gehen durch die Grünanlagen zum Ostausgang, hinter dem unser nächstes Ziel liegt, die St. Pauls Cathedral.
 
 # St Paul's Cathedral
 
@@ -96,11 +96,11 @@ Die St. Paul's Cathedral, die auf den Bildern vom Bau des Victoria Memorial noch
 
 # Indian Museum
 
-Der letzte Stop des Tages bringt uns zum Indian Museum, einem Naturkundemuseum, an dem wir schon öfter vorbei gefahren sind. Heute aber gehen wir endlich einmal hinein. Am Eingang so wie am Ticketschalter sind allerdings schon Menschenschlangen, so dass wir uns auf eine kurze Wartezeit einstellen. Unser Guide hat allerdings andere Pläne und geht an der Schlange vorbei zu einem geschlossenen Schalter. Nach einer kurzen Unterhaltung mit dem Mann am Schalter haben wir Tickets und gehen auch einfach an der Schlange am Eingang vorbei zu den Metalldetektoren. Innen fangen wir unsere Runde durch die Hallen bei den frühen Steinskulpturen an. 
+Der letzte Stop des Tages bringt uns zum Indian Museum, einem Naturkundemuseum, an dem wir schon öfter vorbei gefahren sind. Heute aber gehen wir endlich einmal hinein. Am Eingang so wie am Ticketschalter sind allerdings schon Menschenschlangen, so dass wir uns auf eine kurze Wartezeit einstellen. Unser Guide hat allerdings andere Pläne und geht an der Schlange vorbei zu einem geschlossenen Schalter. Nach einer kurzen Unterhaltung mit dem Mann am Schalter haben wir Tickets und gehen auch einfach an der Schlange am Eingang vorbei zu den Metalldetektoren. Innen fangen wir unsere Runde durch die Hallen bei den frühen Steinskulpturen an.
 
 ![](/images/img_20200125_125949.jpg)
 
-Erstaunlich, wie filigran die Menschen vor Jahrhunderten bereits den Stein behauen haben. Die meisten Skulpturen stellen Szenen aus der hinduistischen Mythologie dar. Für uns stellen sie fast alle das gleiche dar. Obwohl die Skulpturen viel älter als das Haus sind, sind sie in einem weitaus besseren Zustand. Von den Wände, vor denen die Exponate stehen, brückelt stellenweise der Putz und die Wandfarbe ist an den wenigsten Stellen noch wirklich weiß. Offensichtlich wird den Exponaten hier mehr Aufmerksamkeit geschenkt als dem Gebäude selbst - eigentlich auch gut so. Unserem gelangweilt wirkenden Guide folgen wir durch die nächsten Hallen und Stockwerke. Wir kommen an Agrarerzeugnissen und kleinen Szenen ihrer Ernte und Herstellung vorbei. An ausgestopften Tieren und Fossilien. An alten Gewändern und Teppichen. 
+Erstaunlich, wie filigran die Menschen vor Jahrhunderten bereits den Stein behauen haben. Die meisten Skulpturen stellen Szenen aus der hinduistischen Mythologie dar. Für uns stellen sie fast alle das gleiche dar. Obwohl die Skulpturen viel älter als das Haus sind, sind sie in einem weitaus besseren Zustand. Von den Wände, vor denen die Exponate stehen, brückelt stellenweise der Putz und die Wandfarbe ist an den wenigsten Stellen noch wirklich weiß. Offensichtlich wird den Exponaten hier mehr Aufmerksamkeit geschenkt als dem Gebäude selbst - eigentlich auch gut so. Unserem gelangweilt wirkenden Guide folgen wir durch die nächsten Hallen und Stockwerke. Wir kommen an Agrarerzeugnissen und kleinen Szenen ihrer Ernte und Herstellung vorbei. An ausgestopften Tieren und Fossilien. An alten Gewändern und Teppichen.
 
 ![](/images/img_20200125_132121.jpg)
 
@@ -116,19 +116,21 @@ Den nächsten Tag haben wir bis zum Abend für uns, so dass wir noch die Möglic
 
 # Receiption
 
+Damit auch die Freunde und Familie von Sambit, die nicht mit nach Mumbai kommen konnten, auf ihre Kosten kommen, gibt es am Abend noch ein Receiption in Kolkata. Mit dem Uber machen wir uns wieder auf die lange Fahrt dort hin. Unter der Autobahnbrücke biegen wir dann in eine Seitenstraße an einem See ein. Hoffentlich werden wir hier jetzt nicht zum Schluss unserer Reise noch ausgeraubt. Nein. Da steht ein Schild: Bongkani2020. Hier sind wir doch richtig. Wir werden wieder überschwänglich von der Familie empfangen und lernen sogar noch mehr Verwandte von Sambit kennen. Sambit selbst steht mit Priyanka auf einer Bühne und lässt sich von allen neu ankommenden Gästen die Hand schütteln und posiert für ein Foto. Wir winken ihm von hinten kurz mal zu. Wir wollen nicht schon wieder so viele Fotos mit ihm machen. Muss einem ja auch irgendwann mal auf den Geist gehen. Aber noch lächeln sie beide. Wir halten uns an die Freunde von Cousins von Sambit und probieren jeden Gang des flying Buffet aus, das an uns vorbei kommt. Im Innenhof ist ein großer Bildschirm aufgebaut, auf dem die Hochzeitsaufnahmen in Dauerschleife gezeigt werden. In manchen Einstellungen können wir uns auch selber finden. Zu spät merken wir, dass im Gebäudeteil auf der anderen Seite des Innenhofs noch ein richtiges Buffet aufgebaut ist. Da haben wir uns schon am flying Buffet satt gegessen. Aber Nachtisch geht immer. Vollgefressen machen wir dann noch ein Foto am Eingang während wir unser Uber warten und bedanken uns noch einmal ganz herzlich bei unseren Gastgebern. Das nächste Mal werden wir sie in Deutschland wieder sehen.
+
 ![](/images/img_20200126_200050.jpg)
 
 # Nationalfeiertag
 
-Der letzte Tag, den wir in Indien haben, ist zufällig auch noch der Nationalfeiertag Indiens. In Kolkata, ist für diesen Vormittag eine große Militärparade angesetzt, die wir uns angucken möchten. Die Parade führt nicht an unserem Hotel vorbei. Nur zwei Straßen weiter und einmal durch den Park. Theoretisch. 
+Der letzte Tag, den wir in Indien haben, ist zufällig auch noch der Nationalfeiertag Indiens. In Kolkata, ist für diesen Vormittag eine große Militärparade angesetzt, die wir uns angucken möchten. Die Parade führt nicht an unserem Hotel vorbei. Nur zwei Straßen weiter und einmal durch den Park. Theoretisch.
 
 ![](/images/img_20200126_100028.jpg)
 
-Aber die Parade ist so weiträumig abgeriegelt, dass wir einen großen Umweg laufen müssen, bis wir ganz hinten doch noch in zehnter Reihe stehend das Ende der Parade mitbekommen. Anstatt Raketenwerfer und Panzer sehen wir jetzt nur noch Pfadfinder und weiße Mäuse. 
+Aber die Parade ist so weiträumig abgeriegelt, dass wir einen großen Umweg laufen müssen, bis wir ganz hinten doch noch in zehnter Reihe stehend das Ende der Parade mitbekommen. Anstatt Raketenwerfer und Panzer sehen wir jetzt nur noch Pfadfinder und weiße Mäuse.
 
 ![](/images/img_20200126_102633.jpg)
 
-Hat der Vogelschiss - diesmal auf Lena - wohl kein Glück gebracht. Am Nachmittag verlassen wir das Hotel ein letztes Mal, um noch Souvenirs zu suchen. Zu Fuß kommen wir an Ständen und Märkten vorbei, deren Klientel eindeutig die hier lebenden Einheimischen sind. Das hat vor allem den Vorteil, dass wir nicht die ganze Zeit von irgendwo her gedrängt werden, Sachen zu kaufen, die wir nicht haben wollen. 
+Hat der Vogelschiss - diesmal auf Lena - wohl kein Glück gebracht. Am Nachmittag verlassen wir das Hotel ein letztes Mal, um noch Souvenirs zu suchen. Zu Fuß kommen wir an Ständen und Märkten vorbei, deren Klientel eindeutig die hier lebenden Einheimischen sind. Das hat vor allem den Vorteil, dass wir nicht die ganze Zeit von irgendwo her gedrängt werden, Sachen zu kaufen, die wir nicht haben wollen.
 
 ![](/images/img_20200127_133123.jpg)
 
