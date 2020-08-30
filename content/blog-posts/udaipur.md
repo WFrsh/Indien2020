@@ -82,4 +82,6 @@ Eine Lichtung mit Fontänen und Palmen ist umrahmt von dichtem Grün, durch das 
 
 ![](/images/IMG_20200119_142736.jpg)
 
-Nach immer mehr exotischen Pflanzen und einigen Stiefmütterchen stehen wir wieder am Anfang des Gartens. Eine idyllische Fahrt am Fateh Sagar See vorbei, der als Ausflugsziel bei einheimischen sehr beliebt ist, bereitet uns auf den Abschied von Mukesch vor. Den Rest unseres Aufenthalts in Udaipur sind wir auf uns gestellt, bevor es am nächsten Morgen um 7:30 Uhr zum Flughafen geht.
+Nach immer mehr exotischen Pflanzen und einigen Stiefmütterchen stehen wir wieder am Anfang des Gartens. Eine idyllische Fahrt am Fateh Sagar See vorbei, der als Ausflugsziel bei einheimischen sehr beliebt ist, bereitet uns auf den Abschied von Mukesch vor. Den Rest unseres Aufenthalts in Udaipur sind wir auf uns gestellt, bevor es am nächsten Morgen um 7:30 Uhr zum Flughafen geht. 
+
+Dort verabschieden wir uns von Guma und checken unser Gepäck ein. Wir sind gefühlt die einzigen Ausländer im gesamten Provinzflughafen. Die Securityangestellten nehmen ihren Job so ernst, dass sie uns selbst unser kleines schweizer Messerchen abnehmen, dass auf internationalen Flügen kein Problem dargestellt hat. Da wir keine Schlange an der Sicherheitskontrollen hatten und keine langen Laufwege zum Gate haben - es gibt nur ein Terminal - haben wir noch jede Menge Zeit im Wartebereich totzuschlagen, bevor unser Flug startet.
