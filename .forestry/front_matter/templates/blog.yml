@@ -18,7 +18,6 @@ fields:
   name: hero
   label: Hero Image
 pages:
-- content/blog-posts/Walking.md
 - content/blog-posts/agra.md
 - content/blog-posts/anreise.md
 - content/blog-posts/elephanta.md
