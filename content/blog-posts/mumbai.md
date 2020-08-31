@@ -30,11 +30,11 @@ Das Rathaus in der hinter dem Bahnhof aufgehenden Sonne jedoch besser als den Ba
 
 # Dhobi Ghat
 
-Leider nicht. Unser nächster Programmpunkt ist der Dhobi Ghat, ein Platz an den Bahnschieden, der dafür berühmt ist, dass auf ihm eine große Outdoor Wäscherei liegt. Über dem Platz, neben der Brücke über die Bahnschienen liegt eine Aussichtsplattform, von der man normalerweise einen guten Blick hinunter auf die Wäscher hat. Die Plattform wird aber leider just in den Moment gereinigt als wir sie benutzen wollen. Zudem haben die Wäscher ihr Tageswerk bereits verbracht und die Wäsche hängt schon nach Farben getrennt über den Hütten, in denen die Wäscher auch wohnen.
+Leider nicht. Unser nächster Programmpunkt ist der Dhobi Ghat, ein Platz an den Bahnschienen, der dafür berühmt ist, dass auf ihm eine große Outdoor Wäscherei liegt. Über dem Platz, neben der Brücke über die Bahnschienen liegt eine Aussichtsplattform, von der man normalerweise einen guten Blick hinunter auf die Wäscher hat. Die Plattform wird aber leider just in dem Moment gereinigt als wir sie benutzen wollen. Zudem haben die Wäscher ihr Tageswerk bereits verbracht und die Wäsche hängt schon nach Farben getrennt über den Hütten, in denen die Wäscher auch wohnen.
 
 ![](/images/IMG_20200121_095329.jpg)
 
-Das Abwasser der Hochdruckreiniger, mit denen die Aussichtsplattform gereinigt wird, fließt leider der Schwerkraft nach nach unten auf die Wohnungen der Wäscher und landet so auch teilweise auf der sauberen Wäsche. Dass die Wäsche überhaupt so sauber wird, auf einer der Wäscheleine hängen blendend weiße Hosen, ist schon ein kleines Wunder. Auch, dass die Wäsche ohne Wäscheklammern, sie wird nur an der Leine festgeknotet, nicht davon weht, ist erstaunlich. So wie es erstaunlich ist, dass aus den offenen Türen der vorbeirasenden Pendlerzügen niemand heraus fällt. Irgendwie kriegen die Inder ihren hektischen Alltag ohne allzuviele Unfälle auf die Reihe. Wir brauchen jetzt schon eine Pause davon.
+Das Abwasser der Hochdruckreiniger, mit denen die Aussichtsplattform gereinigt wird, fließt leider der Schwerkraft nach nach unten auf die Wohnungen der Wäscher und landet so auch teilweise auf der sauberen Wäsche. Dass die Wäsche überhaupt so sauber wird, auf einer der Wäscheleine hängen blendend weiße Hosen, ist schon ein kleines Wunder. Auch, dass die Wäsche ohne Wäscheklammern, sie wird nur an der Leine festgeknotet, nicht davon weht, ist erstaunlich. So wie es erstaunlich ist, dass aus den offenen Türen der vorbeirasenden Pendlerzügen niemand heraus fällt. Irgendwie kriegen die Inder ihren hektischen Alltag ohne all zu viele Unfälle auf die Reihe. Wir brauchen jetzt schon eine Pause davon.
 
 # Hanging Gardens
 
