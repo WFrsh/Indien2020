@@ -38,4 +38,4 @@ Auf dem Gelände ist mittlerweile  ein wenig mehr los. Bettenwechsel in den ange
 
 ![](/images/IMG_20200118_144020.jpg)
 
-Unsere Fahrt führt über ein Hochplateau nach Südwesten bevor wir den Berg auf einer Schnellstraße wieder hinunter fahren. Auf dem letzte Stück zum Hotel steigen wir dann auf ein Tuk-Tuk um, da Autos in der Altstadt nicht erlaubt sind - und auch nicht durch die engen Gassen passen würden.
+Unsere Fahrt führt über ein Hochplateau nach Südwesten bevor wir den Berg auf einer Schnellstraße wieder hinunter fahren. Auf dem letzte Stück zum Hotel in Udaipur steigen wir dann auf ein Tuk-Tuk um, da Autos in der Altstadt nicht erlaubt sind - und auch nicht durch die engen Gassen passen würden.
