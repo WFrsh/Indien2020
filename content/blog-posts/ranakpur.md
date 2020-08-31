@@ -1,6 +1,5 @@
 +++
 date = 2020-01-17T23:00:00Z
-draft = true
 hero = "/images/IMG_20200118_132647.jpg"
 title = "Ranakpur"
 type = "blog"
