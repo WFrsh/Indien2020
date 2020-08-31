@@ -6,7 +6,7 @@ title = "Sangeet"
 type = "blog"
 
 +++
-# Sangeets
+# Sangeet
 
 ## oder Bollywood, das Musical
 
