@@ -8,7 +8,7 @@ type = "blog"
 +++
 # Fahrt
 
-Am nächsten Morgen machen wir uns auf den Weg nach Agra. Zunächst geht es wieder durch das Gewühl von Delhi bevor wir in die Außenbezirke kommen, wo die Straßen etwas leerer werden. Hier draußen stehen die Häuser nicht mehr so dicht gedrängt dafür aber höher. Wir kommen an vielen fertigen und unfertigen Appartmentgebäuden vorbei sowie nach Aussage Gumas auch an mehreren Callcentern, die hier in der Gegend sitzen. Wir haben aber gerade kein technisches Anliegen, können also weiter fahren. Bald kommen wir auf die neue gebührenpflichtige Autobahn, die Delhi mit Agra verbindet. Hier ist fast kein Verkehr und die Straße ist in sehr guten Zustand, was uns entspannt und schnell voran bringt. Aus den Fenstern haben wir Ausblick über Felder auf beiden Seiten, über denen noch der Nebel des Morgens liegt - oder ist es der Rest des Smogs von Delhi?. 
+Am nächsten Morgen machen wir uns auf den Weg nach Agra. Zunächst geht es wieder durch das Gewühl von Delhi bevor wir in die Außenbezirke kommen, wo die Straßen etwas leerer werden. Hier draußen stehen die Häuser nicht mehr so dicht gedrängt dafür aber höher. Wir kommen an vielen fertigen und unfertigen Appartmentgebäuden vorbei sowie nach Aussage Gumas auch an mehreren Callcentern, die hier in der Gegend sitzen. Wir haben aber gerade kein technisches Anliegen, können also weiter fahren. Bald kommen wir auf die neue gebührenpflichtige Autobahn, die Delhi mit Agra verbindet. Hier ist fast kein Verkehr und die Straße ist in sehr guten Zustand, was uns entspannt und schnell voran bringt. Aus den Fenstern haben wir Ausblick über Felder auf beiden Seiten, über denen noch der Nebel des Morgens liegt - oder ist es der Rest des Smogs von Delhi?.
 
 ![](/images/IMG_20200113_094408.jpg)
 
@@ -36,7 +36,7 @@ Beim Rundgang um das Mausoleum sehen wir auf der Ostseite das alte Gästehaus un
 
 # Agra Fort
 
-![](/images/IMG_20200113_152234.jpg)
+![](/images/img_20200113_152234-1.jpg)
 
 Nach einer kurzen Fahrt tauchen dann wieder die Mauern des roten Fort vor uns auf. Größer als das Rote Fort in Delhi wurde es nicht bloß zum Spaß erbaut sondern als echte Wehrburg mit Burggraben, Fallbrücke und Zinnen auf den dicken Mauern und Toren. Wir durchschreiten gleich zwei der roten Sandsteintore. Also jeder für sich. Lena ist für die Sicherheitskontrolle wieder auf die Frauenseite verbannt worden. Nachdem wir wieder vereint sind, gehen wir die lange Rampe hinauf und stehen vor einem weiteren Tor auf einem großen Platz. Bevor wir durch das Tor gehen können biegt Vineet nach rechts ab zum Palast der Lieblingsfrau Shah Jahans. Davor begutachten wir noch die Badewanne des Mogulkaisers. Mit zwei Metern Durchmesser aus einem Stein gehauen, inklusive Treppe zum Ein- und Ausstieg, allerdings nicht für die meisten Mietshäuser geeignet. Gut, dass der Kaiser nicht mieten musste.
 
