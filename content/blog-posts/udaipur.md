@@ -32,7 +32,7 @@ Auf der viel zu breit wirkenden Straße wenden wir uns nach rechts dem Stadtpala
 
 ![](/images/IMG_20200119_095317.jpg)
 
-In der Mitte wurden früher die Elefanten angekettet, wenn sie nicht gerade an der rechten Mauer Elefantenkämpfe ausgetragen haben. Um den Hof lagen früher die Pferdeställe, weshalb die Säulen und Decken eher schlicht gehalten wurden. Der Ausblick von hier aus nach Osten über die Alt- und Neustadt ist jedoch alles andere als zweckmäßig. Auch der Blick in die andere Richtung beeindruckt. Der Palast ist fünf Stockwerke hoch und die obersten Balkone sind mit farbigen Fliesen und buntem Glas verziert. Darüber luken noch die Spitzen von einigen Bäumen in den Himmel. Kein Wunder, dass auch das hier ein beliebter Spot für Hochzeitsfotos ist. Im ersten Innenhof des Museums begrüßt uns das gleiche Bild, wie wir es schon in den anderen Palästen gesehen haben: verzierte Stützen, Wandmalereien, Schreine für Hindu Gottheiten, Jali (Gitterfenster), Jalousien. Der einzige Unterschied ist, dass die Deko hier größtenteils in sehr guten Zustand ist. Das liegt vor allem daran, dass der größte Teil des Palastes in ein Museum umgewandelt wurde und restauriert wurde bzw gerade noch restauriert wird. Der Maharaja von Udaipur hat den Großteil seinen Besitzes verpachtet oder in Museen und Hotels umgewandelt, mit deren Erlösen er den Erhalt der Kulturgüter sichert - und einer Enteignung durch den Staat entkam. Und so ist kein Wunder, dass jeder Raum durch den wir kommen so aussieht als sei er noch vor wenigen Jahren bewohnt.
+In der Mitte wurden früher die Elefanten angekettet, wenn sie nicht gerade an der rechten Mauer Elefantenkämpfe ausgetragen haben. Um den Hof lagen früher die Pferdeställe, weshalb die Säulen und Decken eher schlicht gehalten wurden. Der Ausblick von hier aus nach Osten über die Alt- und Neustadt ist jedoch alles andere als zweckmäßig. Auch der Blick in die andere Richtung beeindruckt. Der Palast ist fünf Stockwerke hoch und die obersten Balkone sind mit farbigen Fliesen und buntem Glas verziert. Darüber luken noch die Spitzen von einigen Bäumen in den Himmel. Kein Wunder, dass auch das hier ein beliebter Spot für Hochzeitsfotos ist. Im ersten Innenhof des Museums begrüßt uns das gleiche Bild, wie wir es schon in den anderen Palästen gesehen haben: verzierte Stützen, Wandmalereien, Schreine für Hindu Gottheiten, Jali (Gitterfenster), Jalousien. Der einzige Unterschied ist, dass die Deko hier größtenteils in sehr guten Zustand ist. Das liegt vor allem daran, dass der größte Teil des Palastes in ein Museum umgewandelt wurde und restauriert wurde bzw. gerade noch restauriert wird. Der Maharaja von Udaipur hat den Großteil seinen Besitzes verpachtet oder in Museen und Hotels umgewandelt, mit deren Erlösen er den Erhalt der Kulturgüter sichert - und einer Enteignung durch den Staat entkam. Und so ist kein Wunder, dass jeder Raum durch den wir kommen so aussieht als sei er noch vor wenigen Jahren bewohnt.
 
 ![](/images/IMG_20200119_105331.jpg)
 
@@ -40,7 +40,7 @@ Wundern tun wir uns dann als wir auf einmal auf dem Dach des Palastes im fünfte
 
 ![](/images/IMG_20200119_102624.jpg)
 
-Nun aber stehen wir in einem quadratischen Dachgarten mit Schwimmbecken, Kreuzgang und großen Bäumen. Die Bäume wachsen hier aber nicht auf dem Dach des Palastes sondern auf dem Berg um den der Palast erweitert wurde. Auf jeder Seite ein sich atemberaubende Blicke auf. Nach Westen über den Pichola See mit dem Lake Palace Hotel, berühmt aus Film und Fernsehen, und unser Hotel bis zu dem Arawli Bergen, die hinter dem See langsam im Dunst verschwinden.
+Nun aber stehen wir in einem quadratischen Dachgarten mit Schwimmbecken, Kreuzgang und großen Bäumen. Die Bäume wachsen hier aber nicht auf dem Dach des Palastes sondern auf dem Berg um den der Palast erweitert wurde. Auf jeder Seite atemberaubende Blicke. Nach Westen über den Pichola See mit dem Lake Palace Hotel, berühmt aus Film und Fernsehen, und unser Hotel bis zu dem Arawli Bergen, die hinter dem See langsam im Dunst verschwinden.
 
 ![](/images/IMG_20200119_104947.jpg)
 
@@ -70,7 +70,7 @@ Früher unter Jag Mandir bekannt, sind heute Namen wie Shakira-Island geläufige
 
 # Saheliyon-ki-Bari
 
-Wieder mit festem Boden unter den Füßen machen wir eine kurze Mittagspause, bei der wir viele bekannte Gesichter aus den Hotel wieder treffen bevor wir weiter nach Norden zum Frauengarten des Maharana fahren. Hier hat der König sich früher mit seinen Konkubinen vergnügt und es ist nicht schwer, sich vorzustellen, wie er hier wie Adam und Evas durch den Garten getollt ist.
+Wieder mit festem Boden unter den Füßen machen wir eine kurze Mittagspause, bei der wir viele bekannte Gesichter aus den Hotel wieder treffen, bevor wir weiter nach Norden zum Frauengarten des Maharana fahren. Hier hat der König sich früher mit seinen Konkubinen vergnügt und es ist nicht schwer, sich vorzustellen, wie er hier wie Adam und Evas durch den Garten getollt ist.
 
 ![](/images/IMG_20200119_142045.jpg)
 
